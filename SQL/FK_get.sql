@@ -1,4 +1,5 @@
 select 
+
 	SCHEMA_NAME(e.schema_id) +'.'+ object_name(a.parent_object_id) as ParentTable
   ,SCHEMA_NAME(f.schema_id) +'.'+ object_name(b.referenced_object_id) as ReferencedTable
   
