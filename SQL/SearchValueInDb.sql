@@ -17,7 +17,7 @@ DECLARE @what VARCHAR(100)
 DECLARE @bar INT
 DECLARE @i int
 SET @cmd=''
-SET @what= 'êîâáàñà'
+SET @what= 'ковбаса'
 SET @i=1
 SET @tbl_old=''
 
