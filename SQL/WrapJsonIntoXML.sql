@@ -1,1 +1,1 @@
-select (SELECT @JSON FOR XML PATH('root'), TYPE);
+SELECT @JSON FOR XML PATH('root'), TYPE;
