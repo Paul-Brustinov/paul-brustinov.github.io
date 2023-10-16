@@ -1,1626 +1,1626 @@
-[**Євген Манженко**]
+[**Р„РІРіРµРЅ РњР°РЅР¶РµРЅРєРѕ**]
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-Українські приказки і прислів'я - невичерпне джерело ідей для неймінгу, ІМХО. З ходу бачу:
+РЈРєСЂР°С—РЅСЃСЊРєС– РїСЂРёРєР°Р·РєРё С– РїСЂРёСЃР»С–РІ'СЏ - РЅРµРІРёС‡РµСЂРїРЅРµ РґР¶РµСЂРµР»Рѕ С–РґРµР№ РґР»СЏ РЅРµР№РјС–РЅРіСѓ, Р†РњРҐРћ. Р— С…РѕРґСѓ Р±Р°С‡Сѓ:
 
-\- Ресторан квантової кухні "Хлібом не корми"
+\- Р РµСЃС‚РѕСЂР°РЅ РєРІР°РЅС‚РѕРІРѕС— РєСѓС…РЅС– "РҐР»С–Р±РѕРј РЅРµ РєРѕСЂРјРё"
 
-\- Гріль-бар "Куди дуля, туди й дим"
+\- Р“СЂС–Р»СЊ-Р±Р°СЂ "РљСѓРґРё РґСѓР»СЏ, С‚СѓРґРё Р№ РґРёРј"
 
-\- Французька виноробня (з Закарпаття) "Жаба давить"
+\- Р¤СЂР°РЅС†СѓР·СЊРєР° РІРёРЅРѕСЂРѕР±РЅСЏ (Р· Р—Р°РєР°СЂРїР°С‚С‚СЏ) "Р–Р°Р±Р° РґР°РІРёС‚СЊ"
 
-\- Гей-клуб "Любе-голубе"
+\- Р“РµР№-РєР»СѓР± "Р›СЋР±Рµ-РіРѕР»СѓР±Рµ"
 
-\- Галерея "Srala\-mazala"
+\- Р“Р°Р»РµСЂРµСЏ "Srala\-mazala"
 
-Ваші варіанти в коментарях вітаються, колеги.
+Р’Р°С€С– РІР°СЂС–Р°РЅС‚Рё РІ РєРѕРјРµРЅС‚Р°СЂСЏС… РІС–С‚Р°СЋС‚СЊСЃСЏ, РєРѕР»РµРіРё.
 
- [Галина Кравцова](https://www.facebook.com/profile.php?id=100013584784762&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4NDk1NjI3NDM2MTMyMw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+В [Р“Р°Р»РёРЅР° РљСЂР°РІС†РѕРІР°](https://www.facebook.com/profile.php?id=100013584784762&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4NDk1NjI3NDM2MTMyMw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Масажний кабінет «Не бий лежачого».
+РњР°СЃР°Р¶РЅРёР№ РєР°Р±С–РЅРµС‚ В«РќРµ Р±РёР№ Р»РµР¶Р°С‡РѕРіРѕВ».
 
 [Olga Santarovich](https://www.facebook.com/olga.matsko.7?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNjA4NTEwNjEyNzAwNzY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Таксі "яке їхало, таке й здибало"
+РўР°РєСЃС– "СЏРєРµ С—С…Р°Р»Рѕ, С‚Р°РєРµ Р№ Р·РґРёР±Р°Р»Рѕ"
 
 [](https://www.facebook.com/profile.php?id=100017424242085&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIzNDc1NzUzOTMxNjk0MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Елена Андрусевич](https://www.facebook.com/profile.php?id=100017424242085&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIzNDc1NzUzOTMxNjk0MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р•Р»РµРЅР° РђРЅРґСЂСѓСЃРµРІРёС‡](https://www.facebook.com/profile.php?id=100017424242085&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIzNDc1NzUzOTMxNjk0MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Olga Santarovich](https://www.facebook.com/olga.matsko.7?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) такого й на воза посадило![??](prisl1_files/image001.png)
+[Olga Santarovich](https://www.facebook.com/olga.matsko.7?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) С‚Р°РєРѕРіРѕ Р№ РЅР° РІРѕР·Р° РїРѕСЃР°РґРёР»Рѕ![??](prisl1_files/image001.png)
 
 [Roman Stadnyk](https://www.facebook.com/roman.stadnyk.58?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI5MzU3MjkxMjk4OTQyNDY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Платформа для знайомств «Яке їхало, таке здибало»
+РџР»Р°С‚С„РѕСЂРјР° РґР»СЏ Р·РЅР°Р№РѕРјСЃС‚РІ В«РЇРєРµ С—С…Р°Р»Рѕ, С‚Р°РєРµ Р·РґРёР±Р°Р»РѕВ»
 
-Клуб поглибленого вивчення медитації «Дурному не скучно і самому»
+РљР»СѓР± РїРѕРіР»РёР±Р»РµРЅРѕРіРѕ РІРёРІС‡РµРЅРЅСЏ РјРµРґРёС‚Р°С†С–С— В«Р”СѓСЂРЅРѕРјСѓ РЅРµ СЃРєСѓС‡РЅРѕ С– СЃР°РјРѕРјСѓВ»
 
-Турагенство «Шлях би тебе трафив»
+РўСѓСЂР°РіРµРЅСЃС‚РІРѕ В«РЁР»СЏС… Р±Рё С‚РµР±Рµ С‚СЂР°С„РёРІВ»
 
 [Vitaliy V Baklan](https://www.facebook.com/neptuneredcross?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMzOTkwNzA3NTExMjA2Mw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Roman Stadnyk](https://www.facebook.com/roman.stadnyk.58?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) "Шляк трафив" - це означає "розбив параліч"
+[Roman Stadnyk](https://www.facebook.com/roman.stadnyk.58?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) "РЁР»СЏРє С‚СЂР°С„РёРІ" - С†Рµ РѕР·РЅР°С‡Р°С” "СЂРѕР·Р±РёРІ РїР°СЂР°Р»С–С‡"
 
-[Марла Потапченко](https://www.facebook.com/profile.php?id=100006410148558&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzNzM0NDI3ODY1OTAyOTc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂР»Р° РџРѕС‚Р°РїС‡РµРЅРєРѕ](https://www.facebook.com/profile.php?id=100006410148558&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzNzM0NDI3ODY1OTAyOTc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Vitaliy V Baklan](https://www.facebook.com/neptuneredcross?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) не занудствуйте)) дуже вдала гра слів)))
+[Vitaliy V Baklan](https://www.facebook.com/neptuneredcross?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РЅРµ Р·Р°РЅСѓРґСЃС‚РІСѓР№С‚Рµ)) РґСѓР¶Рµ РІРґР°Р»Р° РіСЂР° СЃР»С–РІ)))
 
 [Vitaliy V Baklan](https://www.facebook.com/neptuneredcross?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE3MTg5MDQwOTMwNjIwNQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Марла Потапченко](https://www.facebook.com/profile.php?id=100006410148558&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) Шляк не шлях![??](prisl1_files/image002.png)
+[РњР°СЂР»Р° РџРѕС‚Р°РїС‡РµРЅРєРѕ](https://www.facebook.com/profile.php?id=100006410148558&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РЁР»СЏРє РЅРµ С€Р»СЏС…![??](prisl1_files/image002.png)
 
-Трафив - зустрівся, зустрів,трапився.
+РўСЂР°С„РёРІ - Р·СѓСЃС‚СЂС–РІСЃСЏ, Р·СѓСЃС‚СЂС–РІ,С‚СЂР°РїРёРІСЃСЏ.
 
-Краще тоді підходить до Студії танцю
+РљСЂР°С‰Рµ С‚РѕРґС– РїС–РґС…РѕРґРёС‚СЊ РґРѕ РЎС‚СѓРґС–С— С‚Р°РЅС†СЋ
 
-[Марла Потапченко](https://www.facebook.com/profile.php?id=100006410148558&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNDY2NDAzOTM0NDc1MTI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂР»Р° РџРѕС‚Р°РїС‡РµРЅРєРѕ](https://www.facebook.com/profile.php?id=100006410148558&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNDY2NDAzOTM0NDc1MTI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Vitaliy V Baklan](https://www.facebook.com/neptuneredcross?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) кажу ж - занудствуєте))) бо в пана Романа вийшла назва в дусі Йоди Майстера - шляХ най тебе зустріне))) це іменошо про турагенство)))
+[Vitaliy V Baklan](https://www.facebook.com/neptuneredcross?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РєР°Р¶Сѓ Р¶ - Р·Р°РЅСѓРґСЃС‚РІСѓС”С‚Рµ))) Р±Рѕ РІ РїР°РЅР° Р РѕРјР°РЅР° РІРёР№С€Р»Р° РЅР°Р·РІР° РІ РґСѓСЃС– Р™РѕРґРё РњР°Р№СЃС‚РµСЂР° - С€Р»СЏРҐ РЅР°Р№ С‚РµР±Рµ Р·СѓСЃС‚СЂС–РЅРµ))) С†Рµ С–РјРµРЅРѕС€Рѕ РїСЂРѕ С‚СѓСЂР°РіРµРЅСЃС‚РІРѕ)))
 
 [Oleksa Shkatov](https://www.facebook.com/oleksa.shkatov?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY5ODMzNDY3NTUyMDM0MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-БДСМ клуб "Синя сливка"
+Р‘Р”РЎРњ РєР»СѓР± "РЎРёРЅСЏ СЃР»РёРІРєР°"
 
-[Ігор Романюк](https://www.facebook.com/iromanyuk?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2MzM4ODc0OTM1NTc3OTE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р†РіРѕСЂ Р РѕРјР°РЅСЋРє](https://www.facebook.com/iromanyuk?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2MzM4ODc0OTM1NTc3OTE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон лазерної епіляції "піхв пахв" (с)
+РЎР°Р»РѕРЅ Р»Р°Р·РµСЂРЅРѕС— РµРїС–Р»СЏС†С–С— "РїС–С…РІ РїР°С…РІ" (СЃ)
 
 [Elena Smolina](https://www.facebook.com/profile.php?id=100010908823467&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwODQ1NzE0NDUzNzUwMA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Спа-комплекс і розважальний центр "Срака, банька, Гриць, Паранька", вимбачте-пробачте ![??](prisl1_files/image003.png) 
+РЎРїР°-РєРѕРјРїР»РµРєСЃ С– СЂРѕР·РІР°Р¶Р°Р»СЊРЅРёР№ С†РµРЅС‚СЂ "РЎСЂР°РєР°, Р±Р°РЅСЊРєР°, Р“СЂРёС†СЊ, РџР°СЂР°РЅСЊРєР°", РІРёРјР±Р°С‡С‚Рµ-РїСЂРѕР±Р°С‡С‚Рµ ![??](prisl1_files/image003.png) 
 
-[Аверкіна Надія](https://www.facebook.com/nadia.averkina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE4MDQzMDAwMDAwMTk2NDA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђРІРµСЂРєС–РЅР° РќР°РґС–СЏ](https://www.facebook.com/nadia.averkina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE4MDQzMDAwMDAwMTk2NDA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Адвокатське бюро «Хто всрався? Невістка …»
+РђРґРІРѕРєР°С‚СЃСЊРєРµ Р±СЋСЂРѕ В«РҐС‚Рѕ РІСЃСЂР°РІСЃСЏ? РќРµРІС–СЃС‚РєР° вЂ¦В»
 
 [Oleksii Shevchenko](https://www.facebook.com/oleksii.shevchenko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMwODI2MDM1MTkxMTI3Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-клініка "не вчи діда кашляти"
+РєР»С–РЅС–РєР° "РЅРµ РІС‡Рё РґС–РґР° РєР°С€Р»СЏС‚Рё"
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI5MzkxNTM3MDE2ODY4Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Фаст-фуд "Добрій свині все на користь"
+Р¤Р°СЃС‚-С„СѓРґ "Р”РѕР±СЂС–Р№ СЃРІРёРЅС– РІСЃРµ РЅР° РєРѕСЂРёСЃС‚СЊ"
 
 [Anatolii Matiakh](https://www.facebook.com/netkoatl?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE3OTEzNjAyMjQ2Njc3ODk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Продукт молоковмісний "Такоє"
+РџСЂРѕРґСѓРєС‚ РјРѕР»РѕРєРѕРІРјС–СЃРЅРёР№ "РўР°РєРѕС”"
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3MDY2NzczNzk3NTQ5MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Клініка естетичної хірургії "Жаба цицьки дасть"
+РљР»С–РЅС–РєР° РµСЃС‚РµС‚РёС‡РЅРѕС— С…С–СЂСѓСЂРіС–С— "Р–Р°Р±Р° С†РёС†СЊРєРё РґР°СЃС‚СЊ"
 
-Жарт з подвійним дном, звісно
+Р–Р°СЂС‚ Р· РїРѕРґРІС–Р№РЅРёРј РґРЅРѕРј, Р·РІС–СЃРЅРѕ
 
-[Зоя Ярош](https://www.facebook.com/zoya.yarosh?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzNTAxODQwMTI2MDIyMzM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[Р—РѕСЏ РЇСЂРѕС€](https://www.facebook.com/zoya.yarosh?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzNTAxODQwMTI2MDIyMzM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Дім розпусти «Тиць пиздиць»
+Р”С–Рј СЂРѕР·РїСѓСЃС‚Рё В«РўРёС†СЊ РїРёР·РґРёС†СЊВ»
 
 [Anatolii Matiakh](https://www.facebook.com/netkoatl?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3ODY4MjIzNjkzNDI2Mw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Школа операторів БПЛА "Ні сіло ні впало"
+РЁРєРѕР»Р° РѕРїРµСЂР°С‚РѕСЂС–РІ Р‘РџР›Рђ "РќС– СЃС–Р»Рѕ РЅС– РІРїР°Р»Рѕ"
 
 [Helen Adamantis](https://www.facebook.com/helen.adamantis?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwNDM3Nzk3ODIzMTA1NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Анатолий Матях](https://www.facebook.com/netkoatl?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) і поруч Школа операторів розмінування: «буває, що й корова літає»
+[РђРЅР°С‚РѕР»РёР№ РњР°С‚СЏС…](https://www.facebook.com/netkoatl?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) С– РїРѕСЂСѓС‡ РЁРєРѕР»Р° РѕРїРµСЂР°С‚РѕСЂС–РІ СЂРѕР·РјС–РЅСѓРІР°РЅРЅСЏ: В«Р±СѓРІР°С”, С‰Рѕ Р№ РєРѕСЂРѕРІР° Р»С–С‚Р°С”В»
 
 [Vasyl Meleshyn](https://www.facebook.com/vasyl.meleshyn?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY4NzY4NDg2MzI4OTI3MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Клуб анонімних перфекціоністів "Всрався, та й криво"
+РљР»СѓР± Р°РЅРѕРЅС–РјРЅРёС… РїРµСЂС„РµРєС†С–РѕРЅС–СЃС‚С–РІ "Р’СЃСЂР°РІСЃСЏ, С‚Р° Р№ РєСЂРёРІРѕ"
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2ODg3MzQ0MjY2ODY0MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Туристичне бюро "В сраці був - гімно видів"
+РўСѓСЂРёСЃС‚РёС‡РЅРµ Р±СЋСЂРѕ "Р’ СЃСЂР°С†С– Р±СѓРІ - РіС–РјРЅРѕ РІРёРґС–РІ"
 
 [Julia Dike](https://www.facebook.com/julia.dike.1?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM1Mzk4ODMwMDI5Mzk1MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Дачний кооператив "Срака - мотика"
+Р”Р°С‡РЅРёР№ РєРѕРѕРїРµСЂР°С‚РёРІ "РЎСЂР°РєР° - РјРѕС‚РёРєР°"
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI0MTM0ODczMjU0OTA3Mjk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ще один фаст-фуд "Швидка Настя"
+Р©Рµ РѕРґРёРЅ С„Р°СЃС‚-С„СѓРґ "РЁРІРёРґРєР° РќР°СЃС‚СЏ"
 
-[Svyatoslav Chumak](https://www.facebook.com/profile.php?id=100004291187718&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIxMzgzNDk3NzY1MDk5MzQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[Svyatoslav Chumak](https://www.facebook.com/profile.php?id=100004291187718&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIxMzgzNDk3NzY1MDk5MzQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
 Follow
 
-Діагностичний центр " як у воду дивився"
+Р”С–Р°РіРЅРѕСЃС‚РёС‡РЅРёР№ С†РµРЅС‚СЂ " СЏРє Сѓ РІРѕРґСѓ РґРёРІРёРІСЃСЏ"
 
 [Anatolii Matiakh](https://www.facebook.com/netkoatl?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE1MjE5NzA3NDE4OTgxNDk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Нічний гриль-бар "Свинячий голос"
+РќС–С‡РЅРёР№ РіСЂРёР»СЊ-Р±Р°СЂ "РЎРІРёРЅСЏС‡РёР№ РіРѕР»РѕСЃ"
 
 [Oxana Oxana](https://www.facebook.com/oxana.malisch?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMzOTM5ODg4NTA4MTc3NDE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Anatolii Matiakh](https://www.facebook.com/netkoatl?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) якщо працюватиме до ранку то "Псячі голоси".
+[Anatolii Matiakh](https://www.facebook.com/netkoatl?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) СЏРєС‰Рѕ РїСЂР°С†СЋРІР°С‚РёРјРµ РґРѕ СЂР°РЅРєСѓ С‚Рѕ "РџСЃСЏС‡С– РіРѕР»РѕСЃРё".
 
 [Lyudmila Korzh](https://www.facebook.com/lyudmila.korzh?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIwNjA0ODkyMTQyODU1Nzk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Анатолій Матях](https://www.facebook.com/netkoatl?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) обов'язково з караоке
+[РђРЅР°С‚РѕР»С–Р№ РњР°С‚СЏС…](https://www.facebook.com/netkoatl?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РѕР±РѕРІ'СЏР·РєРѕРІРѕ Р· РєР°СЂР°РѕРєРµ
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzYzOTk5NTIwNDk0NjcwMA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Магазин етноодягу "Гриць з конопель"
+РњР°РіР°Р·РёРЅ РµС‚РЅРѕРѕРґСЏРіСѓ "Р“СЂРёС†СЊ Р· РєРѕРЅРѕРїРµР»СЊ"
 
-[Антон Барабуля](https://www.facebook.com/profile.php?id=100012250170464&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzczNjk1MDk4MTYwNjU2OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђРЅС‚РѕРЅ Р‘Р°СЂР°Р±СѓР»СЏ](https://www.facebook.com/profile.php?id=100012250170464&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzczNjk1MDk4MTYwNjU2OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) взагалі -то, Пилип, але най буде)))
+[Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РІР·Р°РіР°Р»С– -С‚Рѕ, РџРёР»РёРї, Р°Р»Рµ РЅР°Р№ Р±СѓРґРµ)))
 
-[Антон Барабуля](https://www.facebook.com/profile.php?id=100012250170464&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) Сень із конопель!
+[РђРЅС‚РѕРЅ Р‘Р°СЂР°Р±СѓР»СЏ](https://www.facebook.com/profile.php?id=100012250170464&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РЎРµРЅСЊ С–Р· РєРѕРЅРѕРїРµР»СЊ!
 
 [Natalia Patola](https://www.facebook.com/nataliapatola?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzgyMTYxNDQzMjk4MDMwMA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Антон Барабуля](https://www.facebook.com/profile.php?id=100012250170464&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) в нас взагалі був дідько з конопель ![??](prisl1_files/image004.png) 
+[РђРЅС‚РѕРЅ Р‘Р°СЂР°Р±СѓР»СЏ](https://www.facebook.com/profile.php?id=100012250170464&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РІ РЅР°СЃ РІР·Р°РіР°Р»С– Р±СѓРІ РґС–РґСЊРєРѕ Р· РєРѕРЅРѕРїРµР»СЊ ![??](prisl1_files/image004.png) 
 
 [Anna Chernenko](https://www.facebook.com/anna.chernenko.399?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI0MzU3ODI2ODM0NTE5Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) У нас був "Омелько з конопель".
+[Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РЈ РЅР°СЃ Р±СѓРІ "РћРјРµР»СЊРєРѕ Р· РєРѕРЅРѕРїРµР»СЊ".
 
-[Намі Юнамі Намі](https://www.facebook.com/profile.php?id=100014533080944&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMwNTc3ODUwNTUzMjE0NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РќР°РјС– Р®РЅР°РјС– РќР°РјС–](https://www.facebook.com/profile.php?id=100014533080944&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMwNTc3ODUwNTUzMjE0NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-приватна школа "Як горохом до стіни"
+РїСЂРёРІР°С‚РЅР° С€РєРѕР»Р° "РЇРє РіРѕСЂРѕС…РѕРј РґРѕ СЃС‚С–РЅРё"
 
 [Oleksandra Magurova](https://www.facebook.com/aleksandra.magurova?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg5NjE4MjQ2MjA3NDUzOA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Намі Юнамі Намі](https://www.facebook.com/profile.php?id=100014533080944&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) навчальний або репетиторський центр " Як горохом об стіну"
+[РќР°РјС– Р®РЅР°РјС– РќР°РјС–](https://www.facebook.com/profile.php?id=100014533080944&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РЅР°РІС‡Р°Р»СЊРЅРёР№ Р°Р±Рѕ СЂРµРїРµС‚РёС‚РѕСЂСЃСЊРєРёР№ С†РµРЅС‚СЂ " РЇРє РіРѕСЂРѕС…РѕРј РѕР± СЃС‚С–РЅСѓ"
 
 [Oleksandra Magurova](https://www.facebook.com/aleksandra.magurova?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY0MjYzNzQ1ODA1MDc3NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-шлюбна агенція - бачили очі, що брали
+С€Р»СЋР±РЅР° Р°РіРµРЅС†С–СЏ - Р±Р°С‡РёР»Рё РѕС‡С–, С‰Рѕ Р±СЂР°Р»Рё
 
-[Марія Сергіївна Фокіна](https://www.facebook.com/chervona.khmera?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE1MzkzNDMyNzY4NDk0MDM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂС–СЏ РЎРµСЂРіС–С—РІРЅР° Р¤РѕРєС–РЅР°](https://www.facebook.com/chervona.khmera?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE1MzkzNDMyNzY4NDk0MDM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Танцхол "Танцювала риба з раком" вже було?
+РўР°РЅС†С…РѕР» "РўР°РЅС†СЋРІР°Р»Р° СЂРёР±Р° Р· СЂР°РєРѕРј" РІР¶Рµ Р±СѓР»Рѕ?
 
-[Светлана Кадученко](https://www.facebook.com/s.pogorelaya?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY2MjQxNDMzOTI5MzY3Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РЎРІРµС‚Р»Р°РЅР° РљР°РґСѓС‡РµРЅРєРѕ](https://www.facebook.com/s.pogorelaya?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY2MjQxNDMzOTI5MzY3Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Марія Сергіївна Фокіна](https://www.facebook.com/chervona.khmera?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) як варіант, "Танцювала риба раком")))
+[РњР°СЂС–СЏ РЎРµСЂРіС–С—РІРЅР° Р¤РѕРєС–РЅР°](https://www.facebook.com/chervona.khmera?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) СЏРє РІР°СЂС–Р°РЅС‚, "РўР°РЅС†СЋРІР°Р»Р° СЂРёР±Р° СЂР°РєРѕРј")))
 
 [Anatolii Matiakh](https://www.facebook.com/netkoatl?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwMjQxNjEyNDc1NjQyMw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Продукти без цукру, солі, глютену, тваринних складових та рослинних жирів "Варивода"
+РџСЂРѕРґСѓРєС‚Рё Р±РµР· С†СѓРєСЂСѓ, СЃРѕР»С–, РіР»СЋС‚РµРЅСѓ, С‚РІР°СЂРёРЅРЅРёС… СЃРєР»Р°РґРѕРІРёС… С‚Р° СЂРѕСЃР»РёРЅРЅРёС… Р¶РёСЂС–РІ "Р’Р°СЂРёРІРѕРґР°"
 
-[Людмила Король](https://www.facebook.com/profile.php?id=100001925398380&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIxMzY5Mjk2ODQwMjE2MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р›СЋРґРјРёР»Р° РљРѕСЂРѕР»СЊ](https://www.facebook.com/profile.php?id=100001925398380&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIxMzY5Mjk2ODQwMjE2MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Анатолій Матях](https://www.facebook.com/netkoatl?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) то може бути веганський ресторан
+[РђРЅР°С‚РѕР»С–Р№ РњР°С‚СЏС…](https://www.facebook.com/netkoatl?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) С‚Рѕ РјРѕР¶Рµ Р±СѓС‚Рё РІРµРіР°РЅСЃСЊРєРёР№ СЂРµСЃС‚РѕСЂР°РЅ
 
 [Oleksii Shevchenko](https://www.facebook.com/oleksii.shevchenko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIyOTQ2NDY0MTA3Mzc5OTU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-шоурум "куртка на ваті"
+С€РѕСѓСЂСѓРј "РєСѓСЂС‚РєР° РЅР° РІР°С‚С–"
 
-[Марія Сергіївна Фокіна](https://www.facebook.com/chervona.khmera?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMyNzI3OTMzMzIxMzk2NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂС–СЏ РЎРµСЂРіС–С—РІРЅР° Р¤РѕРєС–РЅР°](https://www.facebook.com/chervona.khmera?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMyNzI3OTMzMzIxMzk2NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Oleksii Shevchenko](https://www.facebook.com/oleksii.shevchenko?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) на риб'ячому міху.
+[Oleksii Shevchenko](https://www.facebook.com/oleksii.shevchenko?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РЅР° СЂРёР±'СЏС‡РѕРјСѓ РјС–С…Сѓ.
 
 [Anatolii Matiakh](https://www.facebook.com/netkoatl?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE3MDEwMTk2NDM3MjM1ODc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Біржа послуг "Як мокре горить"
+Р‘С–СЂР¶Р° РїРѕСЃР»СѓРі "РЇРє РјРѕРєСЂРµ РіРѕСЂРёС‚СЊ"
 
 [Oleksa Shkatov](https://www.facebook.com/oleksa.shkatov?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMwMjE0NjgyOTQxNDI3MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Магазин сільгосп-приладдя "Срака-мотика"
+РњР°РіР°Р·РёРЅ СЃС–Р»СЊРіРѕСЃРї-РїСЂРёР»Р°РґРґСЏ "РЎСЂР°РєР°-РјРѕС‚РёРєР°"
 
 [Oleksii Shevchenko](https://www.facebook.com/oleksii.shevchenko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwODcyNjE0OTkxMTAzNzM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-зоомагазин "срав пес"
+Р·РѕРѕРјР°РіР°Р·РёРЅ "СЃСЂР°РІ РїРµСЃ"
 
 [Sahsa Kravchenko](https://www.facebook.com/profile.php?id=100008613644608&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwNzA4NDI4NzUwOTIyNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Oleksii Shevchenko](https://www.facebook.com/oleksii.shevchenko?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) і ветлікарня « перділи гуси»
+[Oleksii Shevchenko](https://www.facebook.com/oleksii.shevchenko?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) С– РІРµС‚Р»С–РєР°СЂРЅСЏ В« РїРµСЂРґС–Р»Рё РіСѓСЃРёВ»
 
-[Юлія Юна](https://www.facebook.com/profile.php?id=100012805183533&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMxNzI2OTcwMDk0NDY1Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р®Р»С–СЏ Р®РЅР°](https://www.facebook.com/profile.php?id=100012805183533&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMxNzI2OTcwMDk0NDY1Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Oleksii Shevchenko](https://www.facebook.com/oleksii.shevchenko?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) "Собака такавочка" (так казала моя бабуся)
+[Oleksii Shevchenko](https://www.facebook.com/oleksii.shevchenko?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) "РЎРѕР±Р°РєР° С‚Р°РєР°РІРѕС‡РєР°" (С‚Р°Рє РєР°Р·Р°Р»Р° РјРѕСЏ Р±Р°Р±СѓСЃСЏ)
 
 [Sahsa Kravchenko](https://www.facebook.com/profile.php?id=100008613644608&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNjU4Mzg0NDEwODI0NjM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Банк «торбу грошей вашій мамі»
+Р‘Р°РЅРє В«С‚РѕСЂР±Сѓ РіСЂРѕС€РµР№ РІР°С€С–Р№ РјР°РјС–В»
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMwNzI5ODE1NTM0NjkxMQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Офтальмологічна клініка "Як баран на нові ворота"
+РћС„С‚Р°Р»СЊРјРѕР»РѕРіС–С‡РЅР° РєР»С–РЅС–РєР° "РЇРє Р±Р°СЂР°РЅ РЅР° РЅРѕРІС– РІРѕСЂРѕС‚Р°"
 
 [Eugene Oliynukov](https://www.facebook.com/zarkxii?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMzM3MDUyMDExMDMwMjA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) То детейлінг
+[Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РўРѕ РґРµС‚РµР№Р»С–РЅРі
 
-[Ірина Асанова](https://www.facebook.com/profile.php?id=100025140192764&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY5ODAzOTI1MTg4MTg2Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р†СЂРёРЅР° РђСЃР°РЅРѕРІР°](https://www.facebook.com/profile.php?id=100025140192764&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY5ODAzOTI1MTg4MTg2Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон ритуальних послуг " Нагадай козі про смерть..."
+РЎР°Р»РѕРЅ СЂРёС‚СѓР°Р»СЊРЅРёС… РїРѕСЃР»СѓРі " РќР°РіР°РґР°Р№ РєРѕР·С– РїСЂРѕ СЃРјРµСЂС‚СЊ..."
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4MTgwNjY3MTQzMDg3Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Хокейний клуб "Бісова ковінька"
+РҐРѕРєРµР№РЅРёР№ РєР»СѓР± "Р‘С–СЃРѕРІР° РєРѕРІС–РЅСЊРєР°"
 
 [Anatolii Matiakh](https://www.facebook.com/netkoatl?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY3MTc2OTU0MTU4Nzk0NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) реву аж стогну
+[Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) СЂРµРІСѓ Р°Р¶ СЃС‚РѕРіРЅСѓ
 
 [Sahsa Kravchenko](https://www.facebook.com/profile.php?id=100008613644608&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMjcwOTcyNDUwODAzMjY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Кальяни «Файна трава, але не на мого коня»
+РљР°Р»СЊСЏРЅРё В«Р¤Р°Р№РЅР° С‚СЂР°РІР°, Р°Р»Рµ РЅРµ РЅР° РјРѕРіРѕ РєРѕРЅСЏВ»
 
 [Yuri Vasiliev](https://www.facebook.com/yuri.vasiliev.77?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwMDMzODc5NTMwNDc3NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Служба знайомств "Нате, тату, XYя в хату"
+РЎР»СѓР¶Р±Р° Р·РЅР°Р№РѕРјСЃС‚РІ "РќР°С‚Рµ, С‚Р°С‚Сѓ, XYСЏ РІ С…Р°С‚Сѓ"
 
-Служба охорони "Не кажи «гоп»"
+РЎР»СѓР¶Р±Р° РѕС…РѕСЂРѕРЅРё "РќРµ РєР°Р¶Рё В«РіРѕРїВ»"
 
-Магазин уцінених продуктів "Дешева рибка"
+РњР°РіР°Р·РёРЅ СѓС†С–РЅРµРЅРёС… РїСЂРѕРґСѓРєС‚С–РІ "Р”РµС€РµРІР° СЂРёР±РєР°"
 
 [Oleksii Shevchenko](https://www.facebook.com/oleksii.shevchenko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzkxMTM5NjE4NzAyMjE3Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-а, чорт, і магазин будівельних товарів "срали-мазали"!
+Р°, С‡РѕСЂС‚, С– РјР°РіР°Р·РёРЅ Р±СѓРґС–РІРµР»СЊРЅРёС… С‚РѕРІР°СЂС–РІ "СЃСЂР°Р»Рё-РјР°Р·Р°Р»Рё"!
 
 [Sahsa Kravchenko](https://www.facebook.com/profile.php?id=100008613644608&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIwMjk2MzMxMTA3MDc1OTE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Мережа психологічної підтримки «Кого люблю, того й чублю»
+РњРµСЂРµР¶Р° РїСЃРёС…РѕР»РѕРіС–С‡РЅРѕС— РїС–РґС‚СЂРёРјРєРё В«РљРѕРіРѕ Р»СЋР±Р»СЋ, С‚РѕРіРѕ Р№ С‡СѓР±Р»СЋВ»
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyODgxNzU5Njg1MzI4ODI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-HR-служба "Не мала баба клопоту"
+HR-СЃР»СѓР¶Р±Р° "РќРµ РјР°Р»Р° Р±Р°Р±Р° РєР»РѕРїРѕС‚Сѓ"
 
 [Antonina Yurchenko](https://www.facebook.com/yurchenko.antonina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzgwOTQ1ODY4MDk3Nzk0MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Видавництво бізнес-літератури "Дурень думкою багатіє".
+Р’РёРґР°РІРЅРёС†С‚РІРѕ Р±С–Р·РЅРµСЃ-Р»С–С‚РµСЂР°С‚СѓСЂРё "Р”СѓСЂРµРЅСЊ РґСѓРјРєРѕСЋ Р±Р°РіР°С‚С–С”".
 
 [Yurii Shlapatskyi](https://www.facebook.com/profile.php?id=100004296077564&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE2MTkyODM5MzE5MzQ2Nzk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-. ..тоді вже рест. "Хлібом не годуй" ))
+. ..С‚РѕРґС– РІР¶Рµ СЂРµСЃС‚. "РҐР»С–Р±РѕРј РЅРµ РіРѕРґСѓР№" ))
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE3NzgzMTQxNjU5MjMxNDI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Танцювальна студія "Трясця"
+РўР°РЅС†СЋРІР°Р»СЊРЅР° СЃС‚СѓРґС–СЏ "РўСЂСЏСЃС†СЏ"
 
 [Eugene Oliynukov](https://www.facebook.com/zarkxii?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY1MTE5NzI5NzAwMzAyNQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) Twerk
 
-[Володимир Галицький](https://www.facebook.com/volodimir.galickiy?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg1MDQyODg4MzIyOTU4Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р’РѕР»РѕРґРёРјРёСЂ Р“Р°Р»РёС†СЊРєРёР№](https://www.facebook.com/volodimir.galickiy?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg1MDQyODg4MzIyOTU4Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ветеринарна лікарня " Жив- був пес"
+Р’РµС‚РµСЂРёРЅР°СЂРЅР° Р»С–РєР°СЂРЅСЏ " Р–РёРІ- Р±СѓРІ РїРµСЃ"
 
 [Antonina Yurchenko](https://www.facebook.com/yurchenko.antonina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyODA2NjI5NTY2NjE1NTk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Навігаційна програма "Язик до Києва доведе".
+РќР°РІС–РіР°С†С–Р№РЅР° РїСЂРѕРіСЂР°РјР° "РЇР·РёРє РґРѕ РљРёС”РІР° РґРѕРІРµРґРµ".
 
 [Eugene Oliynukov](https://www.facebook.com/zarkxii?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY2MTkxNzI1MzgxMzA5NzE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Antonina Yurchenko Або інвестиційна.
+Antonina Yurchenko РђР±Рѕ С–РЅРІРµСЃС‚РёС†С–Р№РЅР°.
 
 [Anatolii Matiakh](https://www.facebook.com/netkoatl?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY1ODk2NTQ2NjIxOTE0OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Спа-салон "Камінь за пазухою"
+РЎРїР°-СЃР°Р»РѕРЅ "РљР°РјС–РЅСЊ Р·Р° РїР°Р·СѓС…РѕСЋ"
 
 [Andrii Balakin](https://www.facebook.com/profile.php?id=100005516491645&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzc5OTIyNjYzODY2OTM0MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Пункт незламності "Сиди, перди, грійся".
+РџСѓРЅРєС‚ РЅРµР·Р»Р°РјРЅРѕСЃС‚С– "РЎРёРґРё, РїРµСЂРґРё, РіСЂС–Р№СЃСЏ".
 
 [Antonina Yurchenko](https://www.facebook.com/yurchenko.antonina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwMjc4MzkwODAyMjkwOQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон краси "До сраки - карі очі".
+РЎР°Р»РѕРЅ РєСЂР°СЃРё "Р”Рѕ СЃСЂР°РєРё - РєР°СЂС– РѕС‡С–".
 
-[Марина Комашкова](https://www.facebook.com/profile.php?id=100009615257050&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzYzNzA1MDE2ODUwMDc1MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂРёРЅР° РљРѕРјР°С€РєРѕРІР°](https://www.facebook.com/profile.php?id=100009615257050&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzYzNzA1MDE2ODUwMDc1MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Antonina Yurchenko](https://www.facebook.com/yurchenko.antonina?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) "хто бачив кращих - нехай повилазить"
+[Antonina Yurchenko](https://www.facebook.com/yurchenko.antonina?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) "С…С‚Рѕ Р±Р°С‡РёРІ РєСЂР°С‰РёС… - РЅРµС…Р°Р№ РїРѕРІРёР»Р°Р·РёС‚СЊ"
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE0MjI2MjgyNzgyODMyMjg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Молитовний дім "Хай бог милує"
+РњРѕР»РёС‚РѕРІРЅРёР№ РґС–Рј "РҐР°Р№ Р±РѕРі РјРёР»СѓС”"
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwNDQ5OTY3NDkyOTAxNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Барбершоп "У дідька лисого"
+Р‘Р°СЂР±РµСЂС€РѕРї "РЈ РґС–РґСЊРєР° Р»РёСЃРѕРіРѕ"
 
-[Валентина Петрова](https://www.facebook.com/profile.php?id=100007354816208&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMDU0NTczNDQwMDcwNDk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р’Р°Р»РµРЅС‚РёРЅР° РџРµС‚СЂРѕРІР°](https://www.facebook.com/profile.php?id=100007354816208&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMDU0NTczNDQwMDcwNDk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Освітній хаб "Вченого вчити - тільки портити"
+РћСЃРІС–С‚РЅС–Р№ С…Р°Р± "Р’С‡РµРЅРѕРіРѕ РІС‡РёС‚Рё - С‚С–Р»СЊРєРё РїРѕСЂС‚РёС‚Рё"
 
 [Vadim Tolpeco](https://www.facebook.com/vadim.tolpeco?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzkyNTQ1Mzc4NTU4ODYyMQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Банний комплекс «Гімно в ополонці», турфірма «Дурне поїхало в турне»
+Р‘Р°РЅРЅРёР№ РєРѕРјРїР»РµРєСЃ В«Р“С–РјРЅРѕ РІ РѕРїРѕР»РѕРЅС†С–В», С‚СѓСЂС„С–СЂРјР° В«Р”СѓСЂРЅРµ РїРѕС—С…Р°Р»Рѕ РІ С‚СѓСЂРЅРµВ»
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg2NTU0MDEwODI1MjQ5Mw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Школа бойових мистецтв "Духопелики"
+РЁРєРѕР»Р° Р±РѕР№РѕРІРёС… РјРёСЃС‚РµС†С‚РІ "Р”СѓС…РѕРїРµР»РёРєРё"
 
 [Antonina Yurchenko](https://www.facebook.com/yurchenko.antonina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI3MTkzMzU0MjQ4MzMzMA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Секс-шоп "Тиць-гриць".
+РЎРµРєСЃ-С€РѕРї "РўРёС†СЊ-РіСЂРёС†СЊ".
 
 [Ludmyla Fedoruk](https://www.facebook.com/profile.php?id=100006274631387&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg1NDQ2OTM2MjY1MDUzNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Політична партія "Зміїне кубло"
+РџРѕР»С–С‚РёС‡РЅР° РїР°СЂС‚С–СЏ "Р—РјС–С—РЅРµ РєСѓР±Р»Рѕ"
 
 [Antonina Yurchenko](https://www.facebook.com/yurchenko.antonina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzMDU1MTg4MzA4NDMzNDU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон ритуальних послуг "Мертвому припарка".
+РЎР°Р»РѕРЅ СЂРёС‚СѓР°Р»СЊРЅРёС… РїРѕСЃР»СѓРі "РњРµСЂС‚РІРѕРјСѓ РїСЂРёРїР°СЂРєР°".
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY1Nzc1OTYwMzIwNTY4Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Музична школа "По цимбалах"
+РњСѓР·РёС‡РЅР° С€РєРѕР»Р° "РџРѕ С†РёРјР±Р°Р»Р°С…"
 
-[Валентина Петрова](https://www.facebook.com/profile.php?id=100007354816208&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0MTQ3MzMzNTAwNjA5MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р’Р°Р»РµРЅС‚РёРЅР° РџРµС‚СЂРѕРІР°](https://www.facebook.com/profile.php?id=100007354816208&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0MTQ3MzMzNTAwNjA5MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Музична школа "Нахіба козі баян"
+РњСѓР·РёС‡РЅР° С€РєРѕР»Р° "РќР°С…С–Р±Р° РєРѕР·С– Р±Р°СЏРЅ"
 
-СТО "П'яте колесо до воза"
+РЎРўРћ "Рџ'СЏС‚Рµ РєРѕР»РµСЃРѕ РґРѕ РІРѕР·Р°"
 
-Агентство нерухомості" П'ятий куток"
+РђРіРµРЅС‚СЃС‚РІРѕ РЅРµСЂСѓС…РѕРјРѕСЃС‚С–" Рџ'СЏС‚РёР№ РєСѓС‚РѕРє"
 
 [Antonina Yurchenko](https://www.facebook.com/yurchenko.antonina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE3NjE3Mzc4MTc2MDM0MDE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Сайти новин "Одна баба сказала", "Брехня по селу".
+РЎР°Р№С‚Рё РЅРѕРІРёРЅ "РћРґРЅР° Р±Р°Р±Р° СЃРєР°Р·Р°Р»Р°", "Р‘СЂРµС…РЅСЏ РїРѕ СЃРµР»Сѓ".
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE3MTU3MDYwNTIyNjU2OTg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Шлюбна агенція "На кривій козі"
+РЁР»СЋР±РЅР° Р°РіРµРЅС†С–СЏ "РќР° РєСЂРёРІС–Р№ РєРѕР·С–"
 
 [Oksana Biliavska](https://www.facebook.com/oksana.gula.9?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMDc1NDIxODcxNTA1MDk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Євген Манженко](https://www.facebook.com/Eugenivanovych?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)я бачила рекламу фірми з ландшафтного дизайну "Зелена миля"
+[Р„РІРіРµРЅ РњР°РЅР¶РµРЅРєРѕ](https://www.facebook.com/Eugenivanovych?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)СЏ Р±Р°С‡РёР»Р° СЂРµРєР»Р°РјСѓ С„С–СЂРјРё Р· Р»Р°РЅРґС€Р°С„С‚РЅРѕРіРѕ РґРёР·Р°Р№РЅСѓ "Р—РµР»РµРЅР° РјРёР»СЏ"
 
-[Валентина Петрова](https://www.facebook.com/profile.php?id=100007354816208&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzOTEwMTE1ODE3NjQ5NDE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р’Р°Р»РµРЅС‚РёРЅР° РџРµС‚СЂРѕРІР°](https://www.facebook.com/profile.php?id=100007354816208&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzOTEwMTE1ODE3NjQ5NDE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Івент-агенція "Насеру твоїй мамі на Великдень"
+Р†РІРµРЅС‚-Р°РіРµРЅС†С–СЏ "РќР°СЃРµСЂСѓ С‚РІРѕС—Р№ РјР°РјС– РЅР° Р’РµР»РёРєРґРµРЅСЊ"
 
 [Svitlana Hubko](https://www.facebook.com/profile.php?id=100003380657545&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg4OTIwNjYwNTk1MzQ3Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ательє з пошиття одягу: Дівчата шиють та співають, матері порють і плачуть
+РђС‚РµР»СЊС” Р· РїРѕС€РёС‚С‚СЏ РѕРґСЏРіСѓ: Р”С–РІС‡Р°С‚Р° С€РёСЋС‚СЊ С‚Р° СЃРїС–РІР°СЋС‚СЊ, РјР°С‚РµСЂС– РїРѕСЂСЋС‚СЊ С– РїР»Р°С‡СѓС‚СЊ
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI3NzkzOTU5NTE5OTQ2Mw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-М'ясний магазин "Сало без хліба"
+Рњ'СЏСЃРЅРёР№ РјР°РіР°Р·РёРЅ "РЎР°Р»Рѕ Р±РµР· С…Р»С–Р±Р°"
 
 [Svitlana Hubko](https://www.facebook.com/profile.php?id=100003380657545&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg2NzY4NDE4MTQwMzMyMA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Шлюбна агенція: Муж і Жона - одна сатана
+РЁР»СЋР±РЅР° Р°РіРµРЅС†С–СЏ: РњСѓР¶ С– Р–РѕРЅР° - РѕРґРЅР° СЃР°С‚Р°РЅР°
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwOTQ1MDcyMzQ4NjYyNjU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Парфумерний магазин "На ладан дихає"
+РџР°СЂС„СѓРјРµСЂРЅРёР№ РјР°РіР°Р·РёРЅ "РќР° Р»Р°РґР°РЅ РґРёС…Р°С”"
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2MzMwOTEyNjE2OTgxMQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Магазин аксесуарів "З писаною торбою" і споріднений з ним магазин будматеріалів "З цвяхом"
+РњР°РіР°Р·РёРЅ Р°РєСЃРµСЃСѓР°СЂС–РІ "Р— РїРёСЃР°РЅРѕСЋ С‚РѕСЂР±РѕСЋ" С– СЃРїРѕСЂС–РґРЅРµРЅРёР№ Р· РЅРёРј РјР°РіР°Р·РёРЅ Р±СѓРґРјР°С‚РµСЂС–Р°Р»С–РІ "Р— С†РІСЏС…РѕРј"
 
 [Svitlana Hubko](https://www.facebook.com/profile.php?id=100003380657545&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE3NTI5MDk5MjUxMjE2OTA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Генетична лабораторія: Яка хата -такий тин, який батько - такий син
+Р“РµРЅРµС‚РёС‡РЅР° Р»Р°Р±РѕСЂР°С‚РѕСЂС–СЏ: РЇРєР° С…Р°С‚Р° -С‚Р°РєРёР№ С‚РёРЅ, СЏРєРёР№ Р±Р°С‚СЊРєРѕ - С‚Р°РєРёР№ СЃРёРЅ
 
 [Antonina Yurchenko](https://www.facebook.com/yurchenko.antonina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY3MTQzMjAwMzUzNTEyNDA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Будинок для людей похилого віку "Три чисниці до смерті".
+Р‘СѓРґРёРЅРѕРє РґР»СЏ Р»СЋРґРµР№ РїРѕС…РёР»РѕРіРѕ РІС–РєСѓ "РўСЂРё С‡РёСЃРЅРёС†С– РґРѕ СЃРјРµСЂС‚С–".
 
 [Antonina Yurchenko](https://www.facebook.com/yurchenko.antonina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0MTkwMTUxODI0NzYxNQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Клініка пластичної хірургії "Згадала баба, як дівкою була".
+РљР»С–РЅС–РєР° РїР»Р°СЃС‚РёС‡РЅРѕС— С…С–СЂСѓСЂРіС–С— "Р—РіР°РґР°Р»Р° Р±Р°Р±Р°, СЏРє РґС–РІРєРѕСЋ Р±СѓР»Р°".
 
 [Antonina Yurchenko](https://www.facebook.com/yurchenko.antonina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNjM2MzcwMjA5NzU5MDk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Садовий центр "На вербі груші, на осиці кислиці".
+РЎР°РґРѕРІРёР№ С†РµРЅС‚СЂ "РќР° РІРµСЂР±С– РіСЂСѓС€С–, РЅР° РѕСЃРёС†С– РєРёСЃР»РёС†С–".
 
-[Алла Цеменко](https://www.facebook.com/profile.php?id=100013963213335&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzgyMjExNjU4NjM2MTc1OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђР»Р»Р° Р¦РµРјРµРЅРєРѕ](https://www.facebook.com/profile.php?id=100013963213335&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzgyMjExNjU4NjM2MTc1OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Контактний зоопарк «срав їм пес, перділи гуси»
+РљРѕРЅС‚Р°РєС‚РЅРёР№ Р·РѕРѕРїР°СЂРє В«СЃСЂР°РІ С—Рј РїРµСЃ, РїРµСЂРґС–Р»Рё РіСѓСЃРёВ»
 
-[Марія Сергіївна Фокіна](https://www.facebook.com/chervona.khmera?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzYzNjA1NTA3ODU2Nzk2Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂС–СЏ РЎРµСЂРіС–С—РІРЅР° Р¤РѕРєС–РЅР°](https://www.facebook.com/chervona.khmera?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzYzNjA1NTA3ODU2Nzk2Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Мережа ломбардів "Парова машина".
+РњРµСЂРµР¶Р° Р»РѕРјР±Р°СЂРґС–РІ "РџР°СЂРѕРІР° РјР°С€РёРЅР°".
 
 [Roman Stadnyk](https://www.facebook.com/roman.stadnyk.58?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI1Mzk1NjcxNTYyMTM0MjI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Клуб історичної реконструкції «Двоє срало, а троє толочило»
+РљР»СѓР± С–СЃС‚РѕСЂРёС‡РЅРѕС— СЂРµРєРѕРЅСЃС‚СЂСѓРєС†С–С— В«Р”РІРѕС” СЃСЂР°Р»Рѕ, Р° С‚СЂРѕС” С‚РѕР»РѕС‡РёР»РѕВ»
 
 [Ludmyla Fedoruk](https://www.facebook.com/profile.php?id=100006274631387&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2MzMyOTc3MjAyMzQ2NjA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ветеринарний кабінет " Псячий закуток "
+Р’РµС‚РµСЂРёРЅР°СЂРЅРёР№ РєР°Р±С–РЅРµС‚ " РџСЃСЏС‡РёР№ Р·Р°РєСѓС‚РѕРє "
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg0ODY5Mzc0MzUzMjk4Mw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Не можу придумати, куди впихнути перлину народної думки "як бик поссяв" (криво)
+РќРµ РјРѕР¶Сѓ РїСЂРёРґСѓРјР°С‚Рё, РєСѓРґРё РІРїРёС…РЅСѓС‚Рё РїРµСЂР»РёРЅСѓ РЅР°СЂРѕРґРЅРѕС— РґСѓРјРєРё "СЏРє Р±РёРє РїРѕСЃСЃСЏРІ" (РєСЂРёРІРѕ)
 
-[Валентина Петрова](https://www.facebook.com/profile.php?id=100007354816208&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM3MzEzNTQ2MTkwNjE3NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р’Р°Р»РµРЅС‚РёРЅР° РџРµС‚СЂРѕРІР°](https://www.facebook.com/profile.php?id=100007354816208&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM3MzEzNTQ2MTkwNjE3NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Xulia Tiotushko серія вітчизняних навігаторів, нє? Ну нє, то й нє. Школа каліграфічного письма.
+Xulia Tiotushko СЃРµСЂС–СЏ РІС–С‚С‡РёР·РЅСЏРЅРёС… РЅР°РІС–РіР°С‚РѕСЂС–РІ, РЅС”? РќСѓ РЅС”, С‚Рѕ Р№ РЅС”. РЁРєРѕР»Р° РєР°Р»С–РіСЂР°С„С–С‡РЅРѕРіРѕ РїРёСЃСЊРјР°.
 
 [Iryna Kulbachuk](https://www.facebook.com/profile.php?id=100016254733672&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM1MDU2NjA3MDY1MzYyMQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) бригада нанесення дорожньої розмітки)
+[Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) Р±СЂРёРіР°РґР° РЅР°РЅРµСЃРµРЅРЅСЏ РґРѕСЂРѕР¶РЅСЊРѕС— СЂРѕР·РјС–С‚РєРё)
 
-[Марина Хаперська](https://www.facebook.com/khaperska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM3MTg3Nzc0NzgzNTYyNzU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂРёРЅР° РҐР°РїРµСЂСЃСЊРєР°](https://www.facebook.com/khaperska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM3MTg3Nzc0NzgzNTYyNzU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Столярний цех "До сраки двері"
+РЎС‚РѕР»СЏСЂРЅРёР№ С†РµС… "Р”Рѕ СЃСЂР°РєРё РґРІРµСЂС–"
 
 [Anatolii Matiakh](https://www.facebook.com/netkoatl?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg2NTkxMjQ4MTcwNzQ4MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Пекарня-стоматологія "Аби хліб, а зуби знайдуться"
+РџРµРєР°СЂРЅСЏ-СЃС‚РѕРјР°С‚РѕР»РѕРіС–СЏ "РђР±Рё С…Р»С–Р±, Р° Р·СѓР±Рё Р·РЅР°Р№РґСѓС‚СЊСЃСЏ"
 
 [Olena Zadorozhna](https://www.facebook.com/ncklr?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg1Mjg3NzQ1Mjg4MTM5OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Транспортна служба "Поїзд їде, воно лізе"
+РўСЂР°РЅСЃРїРѕСЂС‚РЅР° СЃР»СѓР¶Р±Р° "РџРѕС—Р·Рґ С—РґРµ, РІРѕРЅРѕ Р»С–Р·Рµ"
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM1NDQ3ODkwNzAxMzAyNQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Перукарня "У дурного на хаті"
+РџРµСЂСѓРєР°СЂРЅСЏ "РЈ РґСѓСЂРЅРѕРіРѕ РЅР° С…Р°С‚С–"
 
 [Anatolii Matiakh](https://www.facebook.com/netkoatl?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE1NDQxNDM0MTAzMjI2NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон взуття "Видно пана по халявах"
+РЎР°Р»РѕРЅ РІР·СѓС‚С‚СЏ "Р’РёРґРЅРѕ РїР°РЅР° РїРѕ С…Р°Р»СЏРІР°С…"
 
 [Anatolii Matiakh](https://www.facebook.com/netkoatl?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIyODAyNTYzNjU1MTg1OTY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ломбард "даремно і чиряк не вискочить"
+Р›РѕРјР±Р°СЂРґ "РґР°СЂРµРјРЅРѕ С– С‡РёСЂСЏРє РЅРµ РІРёСЃРєРѕС‡РёС‚СЊ"
 
 [Halyna Lipatova](https://www.facebook.com/halyna.lipatova?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg0NzMwMTM2NzA2NzA3Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Анатолій Матях](https://www.facebook.com/netkoatl?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) "даром - за амбаром" ![??](prisl1_files/image004.png)
+[РђРЅР°С‚РѕР»С–Р№ РњР°С‚СЏС…](https://www.facebook.com/netkoatl?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) "РґР°СЂРѕРј - Р·Р° Р°РјР±Р°СЂРѕРј" ![??](prisl1_files/image004.png)
 
-[Олександр Черненко](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg2Mzk1OTI5NDkyNDQzNQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[РћР»РµРєСЃР°РЅРґСЂ Р§РµСЂРЅРµРЅРєРѕ](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg2Mzk1OTI5NDkyNDQzNQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Рекрутингова агенція «Від роботи коні дохнуть»
+Р РµРєСЂСѓС‚РёРЅРіРѕРІР° Р°РіРµРЅС†С–СЏ В«Р’С–Рґ СЂРѕР±РѕС‚Рё РєРѕРЅС– РґРѕС…РЅСѓС‚СЊВ»
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE5ODM4NDEwMjg2NjIyNjA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Консалтингова компанія "Свиня в апельсинах"
+РљРѕРЅСЃР°Р»С‚РёРЅРіРѕРІР° РєРѕРјРїР°РЅС–СЏ "РЎРІРёРЅСЏ РІ Р°РїРµР»СЊСЃРёРЅР°С…"
 
 [Olena Zadorozhna](https://www.facebook.com/ncklr?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2MDc0NTUzNzI4MjUxMTE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон депіляції або навчання з майндфулнесс "Нах..я мені здалося на п..ді чуже волосся"
+РЎР°Р»РѕРЅ РґРµРїС–Р»СЏС†С–С— Р°Р±Рѕ РЅР°РІС‡Р°РЅРЅСЏ Р· РјР°Р№РЅРґС„СѓР»РЅРµСЃСЃ "РќР°С…..СЏ РјРµРЅС– Р·РґР°Р»РѕСЃСЏ РЅР° Рї..РґС– С‡СѓР¶Рµ РІРѕР»РѕСЃСЃСЏ"
 
 [Anatolii Matiakh](https://www.facebook.com/netkoatl?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIwNjQ0MzQwODcyNTg1MjA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Прогноз погоди "Казала Настя як удасться"
+РџСЂРѕРіРЅРѕР· РїРѕРіРѕРґРё "РљР°Р·Р°Р»Р° РќР°СЃС‚СЏ СЏРє СѓРґР°СЃС‚СЊСЃСЏ"
 
-[Олександр Черненко](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE1NjMxMjE4NTQ1MjM0Mzk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[РћР»РµРєСЃР°РЅРґСЂ Р§РµСЂРЅРµРЅРєРѕ](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE1NjMxMjE4NTQ1MjM0Mzk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Автосервіс «Пизда рулю»
+РђРІС‚РѕСЃРµСЂРІС–СЃ В«РџРёР·РґР° СЂСѓР»СЋВ»
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzk5NjE5MDQ2ODM0MDg5NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон краси "Мати Василева!"
+РЎР°Р»РѕРЅ РєСЂР°СЃРё "РњР°С‚Рё Р’Р°СЃРёР»РµРІР°!"
 
-[Юлія Юна](https://www.facebook.com/profile.php?id=100012805183533&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzczMjM2MjI0MTk4NjA0MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р®Р»С–СЏ Р®РЅР°](https://www.facebook.com/profile.php?id=100012805183533&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzczMjM2MjI0MTk4NjA0MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) Поруч автосалон "Йосип на кобилі" і салон взуття "Йосип босий"
+[Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РџРѕСЂСѓС‡ Р°РІС‚РѕСЃР°Р»РѕРЅ "Р™РѕСЃРёРї РЅР° РєРѕР±РёР»С–" С– СЃР°Р»РѕРЅ РІР·СѓС‚С‚СЏ "Р™РѕСЃРёРї Р±РѕСЃРёР№"
 
 [Ludmyla Fedoruk](https://www.facebook.com/profile.php?id=100006274631387&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM4OTAwNzY3ODQ1NTMyMDU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Послуги ворожки " Обіцянка- цяцянка"
+РџРѕСЃР»СѓРіРё РІРѕСЂРѕР¶РєРё " РћР±С–С†СЏРЅРєР°- С†СЏС†СЏРЅРєР°"
 
-[Тетяна Тарасенко](https://www.facebook.com/profile.php?id=100007837990674&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMwNzUwMDc5ODY2MTQ5Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РўРµС‚СЏРЅР° РўР°СЂР°СЃРµРЅРєРѕ](https://www.facebook.com/profile.php?id=100007837990674&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMwNzUwMDc5ODY2MTQ5Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Служба порятунку "Битий не битого везе"
+РЎР»СѓР¶Р±Р° РїРѕСЂСЏС‚СѓРЅРєСѓ "Р‘РёС‚РёР№ РЅРµ Р±РёС‚РѕРіРѕ РІРµР·Рµ"
 
 [Ludmyla Fedoruk](https://www.facebook.com/profile.php?id=100006274631387&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMjg1MTUyNjg0OTI3NjE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Таблоїд " На городі бузина, а в Києві - дядько "
+РўР°Р±Р»РѕС—Рґ " РќР° РіРѕСЂРѕРґС– Р±СѓР·РёРЅР°, Р° РІ РљРёС”РІС– - РґСЏРґСЊРєРѕ "
 
 [Olena Zadorozhna](https://www.facebook.com/ncklr?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIyODExMjQ5MDI3Mjc5MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Курси особистісного зростання "Біг, біг, та й на березі всрався"
+РљСѓСЂСЃРё РѕСЃРѕР±РёСЃС‚С–СЃРЅРѕРіРѕ Р·СЂРѕСЃС‚Р°РЅРЅСЏ "Р‘С–Рі, Р±С–Рі, С‚Р° Р№ РЅР° Р±РµСЂРµР·С– РІСЃСЂР°РІСЃСЏ"
 
-[Олександр Черненко](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMyMzkwOTc0MDYzODMwMDI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[РћР»РµРєСЃР°РЅРґСЂ Р§РµСЂРЅРµРЅРєРѕ](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMyMzkwOTc0MDYzODMwMDI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Кофішоп «Пилип з конопель».
+РљРѕС„С–С€РѕРї В«РџРёР»РёРї Р· РєРѕРЅРѕРїРµР»СЊВ».
 
-[Тетяна Тарасенко](https://www.facebook.com/profile.php?id=100007837990674&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4MjU5Njk5ODAzMTczNA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РўРµС‚СЏРЅР° РўР°СЂР°СЃРµРЅРєРѕ](https://www.facebook.com/profile.php?id=100007837990674&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4MjU5Njk5ODAzMTczNA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Заклад швидкого харчування "Скільки вовка не годуй..." . Страхова компанія "Як рак на горі свисне"
+Р—Р°РєР»Р°Рґ С€РІРёРґРєРѕРіРѕ С…Р°СЂС‡СѓРІР°РЅРЅСЏ "РЎРєС–Р»СЊРєРё РІРѕРІРєР° РЅРµ РіРѕРґСѓР№..." . РЎС‚СЂР°С…РѕРІР° РєРѕРјРїР°РЅС–СЏ "РЇРє СЂР°Рє РЅР° РіРѕСЂС– СЃРІРёСЃРЅРµ"
 
 [Olena Zadorozhna](https://www.facebook.com/ncklr?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE2NTkyMDQ2NTEyNjg5NDU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Магазин веганської їжі "Ні риба, ні мнясо"
+РњР°РіР°Р·РёРЅ РІРµРіР°РЅСЃСЊРєРѕС— С—Р¶С– "РќС– СЂРёР±Р°, РЅС– РјРЅСЏСЃРѕ"
 
-[Вікторія Речиця](https://www.facebook.com/profile.php?id=100008857990890&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI3MjU2ODYxOTA5NjEwNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р’С–РєС‚РѕСЂС–СЏ Р РµС‡РёС†СЏ](https://www.facebook.com/profile.php?id=100008857990890&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI3MjU2ODYxOTA5NjEwNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Благодійний фонд "є що дати - нема в що замотати"
+Р‘Р»Р°РіРѕРґС–Р№РЅРёР№ С„РѕРЅРґ "С” С‰Рѕ РґР°С‚Рё - РЅРµРјР° РІ С‰Рѕ Р·Р°РјРѕС‚Р°С‚Рё"
 
-[Марина Хаперська](https://www.facebook.com/khaperska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzczNTQ3MjMwNTA4MjEwMA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂРёРЅР° РҐР°РїРµСЂСЃСЊРєР°](https://www.facebook.com/khaperska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzczNTQ3MjMwNTA4MjEwMA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Казино "Пішло за водою"
+РљР°Р·РёРЅРѕ "РџС–С€Р»Рѕ Р·Р° РІРѕРґРѕСЋ"
 
-[Олександр Черненко](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNjYyNDYyMzM5NDgyOTM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[РћР»РµРєСЃР°РЅРґСЂ Р§РµСЂРЅРµРЅРєРѕ](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNjYyNDYyMzM5NDgyOTM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Магазин жіночої білизни «Як у Бога за пазухою»
+РњР°РіР°Р·РёРЅ Р¶С–РЅРѕС‡РѕС— Р±С–Р»РёР·РЅРё В«РЇРє Сѓ Р‘РѕРіР° Р·Р° РїР°Р·СѓС…РѕСЋВ»
 
-[Анатолій Ткачук](https://www.facebook.com/sitarion?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY4NjA0NTAwNjczMzE1MzA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђРЅР°С‚РѕР»С–Р№ РўРєР°С‡СѓРє](https://www.facebook.com/sitarion?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY4NjA0NTAwNjczMzE1MzA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Студія вокалу "Пію басом, як свиня часом"
+РЎС‚СѓРґС–СЏ РІРѕРєР°Р»Сѓ "РџС–СЋ Р±Р°СЃРѕРј, СЏРє СЃРІРёРЅСЏ С‡Р°СЃРѕРј"
 
-Клуб дайвінгу "Тут неглибоко - жабі по око"
+РљР»СѓР± РґР°Р№РІС–РЅРіСѓ "РўСѓС‚ РЅРµРіР»РёР±РѕРєРѕ - Р¶Р°Р±С– РїРѕ РѕРєРѕ"
 
-Аналітичний центр "Баба надвоє ворожила"
+РђРЅР°Р»С–С‚РёС‡РЅРёР№ С†РµРЅС‚СЂ "Р‘Р°Р±Р° РЅР°РґРІРѕС” РІРѕСЂРѕР¶РёР»Р°"
 
-ПіАр-центр "Хвали мене моя губонько"
+РџС–РђСЂ-С†РµРЅС‚СЂ "РҐРІР°Р»Рё РјРµРЅРµ РјРѕСЏ РіСѓР±РѕРЅСЊРєРѕ"
 
-Довідкова служба "Не знав - не знав, та й забув"
+Р”РѕРІС–РґРєРѕРІР° СЃР»СѓР¶Р±Р° "РќРµ Р·РЅР°РІ - РЅРµ Р·РЅР°РІ, С‚Р° Р№ Р·Р°Р±СѓРІ"
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNTE2MTYwNzYyNzU1NTk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Туристична агенція екстремальних подорожей "У чорта на рогах"
+РўСѓСЂРёСЃС‚РёС‡РЅР° Р°РіРµРЅС†С–СЏ РµРєСЃС‚СЂРµРјР°Р»СЊРЅРёС… РїРѕРґРѕСЂРѕР¶РµР№ "РЈ С‡РѕСЂС‚Р° РЅР° СЂРѕРіР°С…"
 
 [Olena Zadorozhna](https://www.facebook.com/ncklr?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIzNjg4OTgyNTk5ODgwNjA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Дискавері-бокс косметики "На півшишечки")
+Р”РёСЃРєР°РІРµСЂС–-Р±РѕРєСЃ РєРѕСЃРјРµС‚РёРєРё "РќР° РїС–РІС€РёС€РµС‡РєРё")
 
-[Марина Хаперська](https://www.facebook.com/khaperska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg0NzE1MDExMzYxNjYyMQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂРёРЅР° РҐР°РїРµСЂСЃСЊРєР°](https://www.facebook.com/khaperska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg0NzE1MDExMzYxNjYyMQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Школа ораторського мистецтва "З пустого в порожнє"
+РЁРєРѕР»Р° РѕСЂР°С‚РѕСЂСЃСЊРєРѕРіРѕ РјРёСЃС‚РµС†С‚РІР° "Р— РїСѓСЃС‚РѕРіРѕ РІ РїРѕСЂРѕР¶РЅС”"
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMxNTMwNzQyMTE0MTc0NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Клуб парашутного спорту "Підняло та гепнуло"
+РљР»СѓР± РїР°СЂР°С€СѓС‚РЅРѕРіРѕ СЃРїРѕСЂС‚Сѓ "РџС–РґРЅСЏР»Рѕ С‚Р° РіРµРїРЅСѓР»Рѕ"
 
 [Vladyslav Mazur](https://www.facebook.com/vladyslav.mazur.1?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMDI3NDU2Nzc2NTkwNjM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-шиномонтаж "На тобі ось![??](prisl1_files/image005.png) ( в оригіналі в моєї бабусі тут була дуля))) - а взавтра прийдеш по колеса"
+С€РёРЅРѕРјРѕРЅС‚Р°Р¶ "РќР° С‚РѕР±С– РѕСЃСЊ![??](prisl1_files/image005.png) ( РІ РѕСЂРёРіС–РЅР°Р»С– РІ РјРѕС”С— Р±Р°Р±СѓСЃС– С‚СѓС‚ Р±СѓР»Р° РґСѓР»СЏ))) - Р° РІР·Р°РІС‚СЂР° РїСЂРёР№РґРµС€ РїРѕ РєРѕР»РµСЃР°"
 
-[Олександр Черненко](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzMjY1NzA1Njc5NzQ3MjM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[РћР»РµРєСЃР°РЅРґСЂ Р§РµСЂРЅРµРЅРєРѕ](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzMjY1NzA1Njc5NzQ3MjM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Сеанси лікування гіпнозом: «Бачили очі, що купували».
+РЎРµР°РЅСЃРё Р»С–РєСѓРІР°РЅРЅСЏ РіС–РїРЅРѕР·РѕРј: В«Р‘Р°С‡РёР»Рё РѕС‡С–, С‰Рѕ РєСѓРїСѓРІР°Р»РёВ».
 
-[Марина Хаперська](https://www.facebook.com/khaperska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzc3NDg3MjcwNzczMjQzMA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂРёРЅР° РҐР°РїРµСЂСЃСЊРєР°](https://www.facebook.com/khaperska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzc3NDg3MjcwNzczMjQzMA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Олександр Черненко](https://www.facebook.com/profichok?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) і назва для інтернет-магазину
+[РћР»РµРєСЃР°РЅРґСЂ Р§РµСЂРЅРµРЅРєРѕ](https://www.facebook.com/profichok?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) С– РЅР°Р·РІР° РґР»СЏ С–РЅС‚РµСЂРЅРµС‚-РјР°РіР°Р·РёРЅСѓ
 
 [Halyna Lipatova](https://www.facebook.com/halyna.lipatova?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE0MTYzMzQzNzg5MjM2MzI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Олександр Черненко](https://www.facebook.com/profichok?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) це крамниця "все по 5"
+[РћР»РµРєСЃР°РЅРґСЂ Р§РµСЂРЅРµРЅРєРѕ](https://www.facebook.com/profichok?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) С†Рµ РєСЂР°РјРЅРёС†СЏ "РІСЃРµ РїРѕ 5"
 
-[Олександр Черненко](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzkxMjkxNDczMzYwMTM1MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[РћР»РµРєСЃР°РЅРґСЂ Р§РµСЂРЅРµРЅРєРѕ](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzkxMjkxNDczMzYwMTM1MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Курси особистісного росту: «Всрамся, но не здамся»
+РљСѓСЂСЃРё РѕСЃРѕР±РёСЃС‚С–СЃРЅРѕРіРѕ СЂРѕСЃС‚Сѓ: В«Р’СЃСЂР°РјСЃСЏ, РЅРѕ РЅРµ Р·РґР°РјСЃСЏВ»
 
 [Vadim Tolpeco](https://www.facebook.com/vadim.tolpeco?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyODY5NzI4NzAwMTEyMg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Мазгазин хутряних товарів «Шуба завертається», бійцівський клуб «Байдики»
+РњР°Р·РіР°Р·РёРЅ С…СѓС‚СЂСЏРЅРёС… С‚РѕРІР°СЂС–РІ В«РЁСѓР±Р° Р·Р°РІРµСЂС‚Р°С”С‚СЊСЃСЏВ», Р±С–Р№С†С–РІСЃСЊРєРёР№ РєР»СѓР± В«Р‘Р°Р№РґРёРєРёВ»
 
-[Олександр Черненко](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI1NDM3OTM4OTkxMDgzNzU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[РћР»РµРєСЃР°РЅРґСЂ Р§РµСЂРЅРµРЅРєРѕ](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI1NDM3OTM4OTkxMDgzNzU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Курси ораторського мистецтва «До сраки така срака, яка не балака»
+РљСѓСЂСЃРё РѕСЂР°С‚РѕСЂСЃСЊРєРѕРіРѕ РјРёСЃС‚РµС†С‚РІР° В«Р”Рѕ СЃСЂР°РєРё С‚Р°РєР° СЃСЂР°РєР°, СЏРєР° РЅРµ Р±Р°Р»Р°РєР°В»
 
-[Зоя Ярош](https://www.facebook.com/zoya.yarosh?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3MzgxNTIyMDk2NzQ5OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[Р—РѕСЏ РЇСЂРѕС€](https://www.facebook.com/zoya.yarosh?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3MzgxNTIyMDk2NzQ5OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Політична партія «ї@ала жаба гадюку»
+РџРѕР»С–С‚РёС‡РЅР° РїР°СЂС‚С–СЏ В«С—@Р°Р»Р° Р¶Р°Р±Р° РіР°РґСЋРєСѓВ»
 
-[Зоя Ярош](https://www.facebook.com/zoya.yarosh?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) ток-шоу
+[Р—РѕСЏ РЇСЂРѕС€](https://www.facebook.com/zoya.yarosh?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) С‚РѕРє-С€РѕСѓ
 
 [Ivan Pomidorov](https://www.facebook.com/profile.php?id=100017915027367&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIxMDk3NjgzMzYwNTAxNjY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Зоя Ярош](https://www.facebook.com/zoya.yarosh?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) Нє, це каоліція, як казала одна...
+[Р—РѕСЏ РЇСЂРѕС€](https://www.facebook.com/zoya.yarosh?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РќС”, С†Рµ РєР°РѕР»С–С†С–СЏ, СЏРє РєР°Р·Р°Р»Р° РѕРґРЅР°...
 
 [Ludmyla Fedoruk](https://www.facebook.com/profile.php?id=100006274631387&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI0MDYxMjM0MTk5Mzk5OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Послуги психотерапевта " Шо сі стрєсло?" ( для галичан)
+РџРѕСЃР»СѓРіРё РїСЃРёС…РѕС‚РµСЂР°РїРµРІС‚Р° " РЁРѕ СЃС– СЃС‚СЂС”СЃР»Рѕ?" ( РґР»СЏ РіР°Р»РёС‡Р°РЅ)
 
 [Kateryna Khoptynska](https://www.facebook.com/khoptynska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzc5OTY3NTAwMTk1NjEyMQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Дизайн студія "Срали мазали"
+Р”РёР·Р°Р№РЅ СЃС‚СѓРґС–СЏ "РЎСЂР°Р»Рё РјР°Р·Р°Р»Рё"
 
-[Марина Хаперська](https://www.facebook.com/khaperska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY3MDgxODc5ODM1ODg3Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂРёРЅР° РҐР°РїРµСЂСЃСЊРєР°](https://www.facebook.com/khaperska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY3MDgxODc5ODM1ODg3Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Kateryna Khoptynska](https://www.facebook.com/khoptynska?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) і продовження: сцяли - підводили
+[Kateryna Khoptynska](https://www.facebook.com/khoptynska?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) С– РїСЂРѕРґРѕРІР¶РµРЅРЅСЏ: СЃС†СЏР»Рё - РїС–РґРІРѕРґРёР»Рё
 
 [Kateryna Khoptynska](https://www.facebook.com/khoptynska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE0MDM0ODk0NzcyNDM5NjU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Марина Хаперська](https://www.facebook.com/khaperska?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) це має бути будівельна бригада від цієї студії :))
+[РњР°СЂРёРЅР° РҐР°РїРµСЂСЃСЊРєР°](https://www.facebook.com/khaperska?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) С†Рµ РјР°С” Р±СѓС‚Рё Р±СѓРґС–РІРµР»СЊРЅР° Р±СЂРёРіР°РґР° РІС–Рґ С†С–С”С— СЃС‚СѓРґС–С— :))
 
 [Volodymyr Mylenko](https://www.facebook.com/vmylenko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg2NTg3MTk4ODMzODAwMQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Моя бабуся казала - "Срала мазала, плакала-розказувала". То це виходить щось типу галереї і театру в одному флаконі ![??](prisl1_files/image004.png) 
+РњРѕСЏ Р±Р°Р±СѓСЃСЏ РєР°Р·Р°Р»Р° - "РЎСЂР°Р»Р° РјР°Р·Р°Р»Р°, РїР»Р°РєР°Р»Р°-СЂРѕР·РєР°Р·СѓРІР°Р»Р°". РўРѕ С†Рµ РІРёС…РѕРґРёС‚СЊ С‰РѕСЃСЊ С‚РёРїСѓ РіР°Р»РµСЂРµС— С– С‚РµР°С‚СЂСѓ РІ РѕРґРЅРѕРјСѓ С„Р»Р°РєРѕРЅС– ![??](prisl1_files/image004.png) 
 
 [Volodymyr Mylenko](https://www.facebook.com/vmylenko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg0NzI1Njc3MDE4NTM4Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Карпатська сироварня "Брат братом, а бриндзя за гроші"
+РљР°СЂРїР°С‚СЃСЊРєР° СЃРёСЂРѕРІР°СЂРЅСЏ "Р‘СЂР°С‚ Р±СЂР°С‚РѕРј, Р° Р±СЂРёРЅРґР·СЏ Р·Р° РіСЂРѕС€С–"
 
 [Volodymyr Mylenko](https://www.facebook.com/vmylenko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2NDcxNTgyMjc1Nzk5OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-той, як його, ото шо зал із купою дзеркал - "У страху очі великі"
+С‚РѕР№, СЏРє Р№РѕРіРѕ, РѕС‚Рѕ С€Рѕ Р·Р°Р» С–Р· РєСѓРїРѕСЋ РґР·РµСЂРєР°Р» - "РЈ СЃС‚СЂР°С…Сѓ РѕС‡С– РІРµР»РёРєС–"
 
-[Антон Барабуля](https://www.facebook.com/profile.php?id=100012250170464&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY2NTc5MzIyODg2MDIzNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђРЅС‚РѕРЅ Р‘Р°СЂР°Р±СѓР»СЏ](https://www.facebook.com/profile.php?id=100012250170464&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY2NTc5MzIyODg2MDIzNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Зоомагазин "Кому чого, а курці - проса"
+Р—РѕРѕРјР°РіР°Р·РёРЅ "РљРѕРјСѓ С‡РѕРіРѕ, Р° РєСѓСЂС†С– - РїСЂРѕСЃР°"
 
-[Валентина Петрова](https://www.facebook.com/profile.php?id=100007354816208&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE2ODI5MjAyNjg4ODUwODQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р’Р°Р»РµРЅС‚РёРЅР° РџРµС‚СЂРѕРІР°](https://www.facebook.com/profile.php?id=100007354816208&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE2ODI5MjAyNjg4ODUwODQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Курси англійської "Мать вам не дура, мать життя прожила"
+РљСѓСЂСЃРё Р°РЅРіР»С–Р№СЃСЊРєРѕС— "РњР°С‚СЊ РІР°Рј РЅРµ РґСѓСЂР°, РјР°С‚СЊ Р¶РёС‚С‚СЏ РїСЂРѕР¶РёР»Р°"
 
-[Марія Сергіївна Фокіна](https://www.facebook.com/chervona.khmera?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNTQwMDIxMjg5NTg3OTg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂС–СЏ РЎРµСЂРіС–С—РІРЅР° Р¤РѕРєС–РЅР°](https://www.facebook.com/chervona.khmera?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNTQwMDIxMjg5NTg3OTg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Тренінг з сервіровки "Вміла готувати, не вміла подавати".
+РўСЂРµРЅС–РЅРі Р· СЃРµСЂРІС–СЂРѕРІРєРё "Р’РјС–Р»Р° РіРѕС‚СѓРІР°С‚Рё, РЅРµ РІРјС–Р»Р° РїРѕРґР°РІР°С‚Рё".
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0MDE3MTQ1ODUyMTI2MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Магазин сільгоспінструментів "Срака-мотика"
+РњР°РіР°Р·РёРЅ СЃС–Р»СЊРіРѕСЃРїС–РЅСЃС‚СЂСѓРјРµРЅС‚С–РІ "РЎСЂР°РєР°-РјРѕС‚РёРєР°"
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg0NTQ4MDMxMDM5NzU4OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Клуб стендапу "Суши зуби"
+РљР»СѓР± СЃС‚РµРЅРґР°РїСѓ "РЎСѓС€Рё Р·СѓР±Рё"
 
 [Katya Balun](https://www.facebook.com/katya.balun1?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNDM0NjQxNzA0Mzg2MjA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) Більше схоже на назву ролів в суші-барі![??](prisl1_files/image006.png)
+[Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) Р‘С–Р»СЊС€Рµ СЃС…РѕР¶Рµ РЅР° РЅР°Р·РІСѓ СЂРѕР»С–РІ РІ СЃСѓС€С–-Р±Р°СЂС–![??](prisl1_files/image006.png)
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2MDE0OTc1MzEwNjA2Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Студія медитації "Пельку на петельку"
+РЎС‚СѓРґС–СЏ РјРµРґРёС‚Р°С†С–С— "РџРµР»СЊРєСѓ РЅР° РїРµС‚РµР»СЊРєСѓ"
 
 [Anastasia Golikova](https://www.facebook.com/anastasia.golikova.33?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI5MTc3MzE2MzYyMjA0NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Іван Семесюк](https://www.facebook.com/ivan.semesyuk?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) ще був Пластилін. Теж нічого.
+[Р†РІР°РЅ РЎРµРјРµСЃСЋРє](https://www.facebook.com/ivan.semesyuk?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) С‰Рµ Р±СѓРІ РџР»Р°СЃС‚РёР»С–РЅ. РўРµР¶ РЅС–С‡РѕРіРѕ.
 
 [Xulia Tiotushko](https://www.facebook.com/profile.php?id=100088411508791&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0MDYwODkyODk1MzYzMDE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Клінінгова компанія та пральня "Нова копійка"
+РљР»С–РЅС–РЅРіРѕРІР° РєРѕРјРїР°РЅС–СЏ С‚Р° РїСЂР°Р»СЊРЅСЏ "РќРѕРІР° РєРѕРїС–Р№РєР°"
 
 [Yulia Batkilina](https://www.facebook.com/julia.batkilina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIyNzU5NjM3MzkyNTQ5ODI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Іподром "Йосип на кобилі"
+Р†РїРѕРґСЂРѕРј "Р™РѕСЃРёРї РЅР° РєРѕР±РёР»С–"
 
 [Lesia Gordienko](https://www.facebook.com/olesia.gonchar?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMzMDQ2NzA0Mjg5NTU5NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Lilya Lylyk](https://www.facebook.com/lilya.lylyk?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) а «срала мазала»![??](prisl1_files/image007.png)![??](prisl1_files/image007.png)![??](prisl1_files/image007.png)
+[Lilya Lylyk](https://www.facebook.com/lilya.lylyk?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) Р° В«СЃСЂР°Р»Р° РјР°Р·Р°Р»Р°В»![??](prisl1_files/image007.png)![??](prisl1_files/image007.png)![??](prisl1_files/image007.png)
 
-[Алла Цеменко](https://www.facebook.com/profile.php?id=100013963213335&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI2NjY3ODcwODM0NTkzODQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђР»Р»Р° Р¦РµРјРµРЅРєРѕ](https://www.facebook.com/profile.php?id=100013963213335&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI2NjY3ODcwODM0NTkzODQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Птахофабрика «Химині кури, Мотрині яйця»
+РџС‚Р°С…РѕС„Р°Р±СЂРёРєР° В«РҐРёРјРёРЅС– РєСѓСЂРё, РњРѕС‚СЂРёРЅС– СЏР№С†СЏВ»
 
 [Nikita Nakonechnyi](https://www.facebook.com/nnakonechnyi?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY5Mjk2NzY2NTc2NzI2Mw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Фешен бутік «Йосип драний»
+Р¤РµС€РµРЅ Р±СѓС‚С–Рє В«Р™РѕСЃРёРї РґСЂР°РЅРёР№В»
 
-Чоловічий стрип-клуб «Йосип голий»
+Р§РѕР»РѕРІС–С‡РёР№ СЃС‚СЂРёРї-РєР»СѓР± В«Р™РѕСЃРёРї РіРѕР»РёР№В»
 
-[Олеся Єрошкіна](https://www.facebook.com/o.yeroshkina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE5NzQxMDQyMzk2MjQ1MDY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»РµСЃСЏ Р„СЂРѕС€РєС–РЅР°](https://www.facebook.com/o.yeroshkina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE5NzQxMDQyMzk2MjQ1MDY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Алкогольний магазин можна назвати 'Наливайте, бо їдять'
+РђР»РєРѕРіРѕР»СЊРЅРёР№ РјР°РіР°Р·РёРЅ РјРѕР¶РЅР° РЅР°Р·РІР°С‚Рё 'РќР°Р»РёРІР°Р№С‚Рµ, Р±Рѕ С—РґСЏС‚СЊ'
 
-[Олександра Ревуцька](https://www.facebook.com/profile.php?id=1790144868&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNjg5NDcyNjQ1MzA1ODk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»РµРєСЃР°РЅРґСЂР° Р РµРІСѓС†СЊРєР°](https://www.facebook.com/profile.php?id=1790144868&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNjg5NDcyNjQ1MzA1ODk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-дебатний клуб "говорила срака з вітром")
+РґРµР±Р°С‚РЅРёР№ РєР»СѓР± "РіРѕРІРѕСЂРёР»Р° СЃСЂР°РєР° Р· РІС–С‚СЂРѕРј")
 
-[Tetiana Ostrovska](https://www.facebook.com/tetianaostrovska284?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3NjUyNDc2MzQ4NDU3Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[Tetiana Ostrovska](https://www.facebook.com/tetianaostrovska284?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3NjUyNDc2MzQ4NDU3Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Спорт клуб"До Києва рачки"
+РЎРїРѕСЂС‚ РєР»СѓР±"Р”Рѕ РљРёС”РІР° СЂР°С‡РєРё"
 
-[Tetiana Ostrovska](https://www.facebook.com/tetianaostrovska284?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg0OTU5OTgzMzUxMTkxNQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[Tetiana Ostrovska](https://www.facebook.com/tetianaostrovska284?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg0OTU5OTgzMzUxMTkxNQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Крупа гречана "Стрибай!"
+РљСЂСѓРїР° РіСЂРµС‡Р°РЅР° "РЎС‚СЂРёР±Р°Р№!"
 
 [Antonina Yurchenko](https://www.facebook.com/yurchenko.antonina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY5NjAzMjAzOTEzNDM1Mw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Монастир "Від гріха подалі"
+РњРѕРЅР°СЃС‚РёСЂ "Р’С–Рґ РіСЂС–С…Р° РїРѕРґР°Р»С–"
 
 [Eugene Oliynukov](https://www.facebook.com/zarkxii?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzExMDY1NTQzMDAzMzgyMTk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Бордель: "Полюбила пана".
+Р‘РѕСЂРґРµР»СЊ: "РџРѕР»СЋР±РёР»Р° РїР°РЅР°".
 
 [Eugene Oliynukov](https://www.facebook.com/zarkxii?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMwNjA3NzA1NTQ3Mjk4OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Патріотичний бордель: "Кохайтеся українці, та не з москалями".
+РџР°С‚СЂС–РѕС‚РёС‡РЅРёР№ Р±РѕСЂРґРµР»СЊ: "РљРѕС…Р°Р№С‚РµСЃСЏ СѓРєСЂР°С—РЅС†С–, С‚Р° РЅРµ Р· РјРѕСЃРєР°Р»СЏРјРё".
 
 [Eugene Oliynukov](https://www.facebook.com/zarkxii?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzczMTk0NDE4MjEwMTcyNQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Дім пристарілих: "Ні сіло ні впало".
+Р”С–Рј РїСЂРёСЃС‚Р°СЂС–Р»РёС…: "РќС– СЃС–Р»Рѕ РЅС– РІРїР°Р»Рѕ".
 
 [Eugene Oliynukov](https://www.facebook.com/zarkxii?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIyNjc3MDU2MTY5NTM3ODQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Боксерський клуб "Верба": "Не я б'ю — верба б'є.
+Р‘РѕРєСЃРµСЂСЃСЊРєРёР№ РєР»СѓР± "Р’РµСЂР±Р°": "РќРµ СЏ Р±'СЋ вЂ” РІРµСЂР±Р° Р±'С”.
 
 [Eugene Oliynukov](https://www.facebook.com/zarkxii?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI5NTkxNjI3OTg5NzU1Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-РПЦ: «Скажи дурневі Богу молитись – він і лоба розіб’є»
+Р РџР¦: В«РЎРєР°Р¶Рё РґСѓСЂРЅРµРІС– Р‘РѕРіСѓ РјРѕР»РёС‚РёСЃСЊ вЂ“ РІС–РЅ С– Р»РѕР±Р° СЂРѕР·С–Р±вЂ™С”В»
 
 [Eugene Oliynukov](https://www.facebook.com/zarkxii?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI1Njg0MDcxMTk5OTIwMDc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Непотрібний телеканал: "Несе Галя воду"
+РќРµРїРѕС‚СЂС–Р±РЅРёР№ С‚РµР»РµРєР°РЅР°Р»: "РќРµСЃРµ Р“Р°Р»СЏ РІРѕРґСѓ"
 
 [Eugene Oliynukov](https://www.facebook.com/zarkxii?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg2MTE5NDkzNTYzOTU0Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Доставка: "Швидка Настя".
+Р”РѕСЃС‚Р°РІРєР°: "РЁРІРёРґРєР° РќР°СЃС‚СЏ".
 
 [Eugene Oliynukov](https://www.facebook.com/zarkxii?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg0Mzk5NjY2Mzg5ODM5MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Або 2-3 дні)
+РђР±Рѕ 2-3 РґРЅС–)
 
 [Larysa Luzanova](https://www.facebook.com/larysa.luzanova?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE2NzY4ODcyNTYxMzA1MzI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Сімейний бізнес «Який батько, таке й дитятко».
+РЎС–РјРµР№РЅРёР№ Р±С–Р·РЅРµСЃ В«РЇРєРёР№ Р±Р°С‚СЊРєРѕ, С‚Р°РєРµ Р№ РґРёС‚СЏС‚РєРѕВ».
 
 [Svitlana Hubko](https://www.facebook.com/profile.php?id=100003380657545&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg1ODQyNTYxNTc3MjQ2Mw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Служба доставки: Де його чорти понесли?
+РЎР»СѓР¶Р±Р° РґРѕСЃС‚Р°РІРєРё: Р”Рµ Р№РѕРіРѕ С‡РѕСЂС‚Рё РїРѕРЅРµСЃР»Рё?
 
 [Andriy Zholob](https://www.facebook.com/andriy.zholob?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcxMTQ1NjUxMDM3MjcxNQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Тату салон «Буде тіло - буде й діло»
+РўР°С‚Сѓ СЃР°Р»РѕРЅ В«Р‘СѓРґРµ С‚С–Р»Рѕ - Р±СѓРґРµ Р№ РґС–Р»РѕВ»
 
 [Andriy Zholob](https://www.facebook.com/andriy.zholob?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNTkxODUzODUwODg4ODg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Клініка штучного запліднення «Яблуко від яблуні…»
+РљР»С–РЅС–РєР° С€С‚СѓС‡РЅРѕРіРѕ Р·Р°РїР»С–РґРЅРµРЅРЅСЏ В«РЇР±Р»СѓРєРѕ РІС–Рґ СЏР±Р»СѓРЅС–вЂ¦В»
 
 [Olena Sharhovska](https://www.facebook.com/sharhovska.olena?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0MjU1MDU4ODE4ODE5Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-БДСМ-клуб “Коханий – сім разів у сраку пропханий”
+Р‘Р”РЎРњ-РєР»СѓР± вЂњРљРѕС…Р°РЅРёР№ вЂ“ СЃС–Рј СЂР°Р·С–РІ Сѓ СЃСЂР°РєСѓ РїСЂРѕРїС…Р°РЅРёР№вЂќ
 
-[Марина Комашкова](https://www.facebook.com/profile.php?id=100009615257050&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0OTg5MzIyMzcwMzUyNDQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂРёРЅР° РљРѕРјР°С€РєРѕРІР°](https://www.facebook.com/profile.php?id=100009615257050&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0OTg5MzIyMzcwMzUyNDQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Клініка кодіровки по методу (когось) "зарікалася свиня гівна не їсти'
+РљР»С–РЅС–РєР° РєРѕРґС–СЂРѕРІРєРё РїРѕ РјРµС‚РѕРґСѓ (РєРѕРіРѕСЃСЊ) "Р·Р°СЂС–РєР°Р»Р°СЃСЏ СЃРІРёРЅСЏ РіС–РІРЅР° РЅРµ С—СЃС‚Рё'
 
-[Олександр Черненко](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE1Nzg4NzA3MzI2NDYwNTk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[РћР»РµРєСЃР°РЅРґСЂ Р§РµСЂРЅРµРЅРєРѕ](https://www.facebook.com/profichok?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE1Nzg4NzA3MzI2NDYwNTk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Будинок розпусти «Як медом помазано»
+Р‘СѓРґРёРЅРѕРє СЂРѕР·РїСѓСЃС‚Рё В«РЇРє РјРµРґРѕРј РїРѕРјР°Р·Р°РЅРѕВ»
 
-[Ольга Брильова](https://www.facebook.com/olhabrylova?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY5NTE2Nzk2NTg1ODgyMA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»СЊРіР° Р‘СЂРёР»СЊРѕРІР°](https://www.facebook.com/olhabrylova?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY5NTE2Nzk2NTg1ODgyMA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Спортзал "Жінка без сраки як село без церкви".
+РЎРїРѕСЂС‚Р·Р°Р» "Р–С–РЅРєР° Р±РµР· СЃСЂР°РєРё СЏРє СЃРµР»Рѕ Р±РµР· С†РµСЂРєРІРё".
 
-[Ганна Шевчук](https://www.facebook.com/shevchuchka?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0Njg0MDY2Nzg2NDkwNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р“Р°РЅРЅР° РЁРµРІС‡СѓРє](https://www.facebook.com/shevchuchka?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0Njg0MDY2Nzg2NDkwNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Крамниця товарів для немовлят "Срака, миска і колиска".
+РљСЂР°РјРЅРёС†СЏ С‚РѕРІР°СЂС–РІ РґР»СЏ РЅРµРјРѕРІР»СЏС‚ "РЎСЂР°РєР°, РјРёСЃРєР° С– РєРѕР»РёСЃРєР°".
 
-А крамниці "Ваш сад" зробити ребрендинг "Мох, трава і жаба крива" ![??](prisl1_files/image007.png) 
+Рђ РєСЂР°РјРЅРёС†С– "Р’Р°С€ СЃР°Рґ" Р·СЂРѕР±РёС‚Рё СЂРµР±СЂРµРЅРґРёРЅРі "РњРѕС…, С‚СЂР°РІР° С– Р¶Р°Р±Р° РєСЂРёРІР°" ![??](prisl1_files/image007.png) 
 
 [Nataliia Shvets](https://www.facebook.com/rnotika?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyMTc2NTk1ODI5Njk5NTc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Навігатор "Розкажу до сраки дорогу"
+РќР°РІС–РіР°С‚РѕСЂ "Р РѕР·РєР°Р¶Сѓ РґРѕ СЃСЂР°РєРё РґРѕСЂРѕРіСѓ"
 
 [Ann Feynman](https://www.facebook.com/anna.fiiallka?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE4MDMyNzUxOTM0NDE0OTc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Страхова компанія/Інвестиційна компанія "Не мала баба клопоту - купила порося"
+РЎС‚СЂР°С…РѕРІР° РєРѕРјРїР°РЅС–СЏ/Р†РЅРІРµСЃС‚РёС†С–Р№РЅР° РєРѕРјРїР°РЅС–СЏ "РќРµ РјР°Р»Р° Р±Р°Р±Р° РєР»РѕРїРѕС‚Сѓ - РєСѓРїРёР»Р° РїРѕСЂРѕСЃСЏ"
 
 [Anna Kompanets](https://www.facebook.com/anna.kompanets.1?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzk5NDMzNDQ3MTc4OTU1Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Проктологічна клініка "Щоб ти був всрався!".
+РџСЂРѕРєС‚РѕР»РѕРіС–С‡РЅР° РєР»С–РЅС–РєР° "Р©РѕР± С‚Рё Р±СѓРІ РІСЃСЂР°РІСЃСЏ!".
 
 [Tat Strashn](https://www.facebook.com/fdjgfjkjkd32342324?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM4MzE1NDc3ODM3OTIwMjI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Агенція ландшафтного дизайну "Хай валяється коло хати"
+РђРіРµРЅС†С–СЏ Р»Р°РЅРґС€Р°С„С‚РЅРѕРіРѕ РґРёР·Р°Р№РЅСѓ "РҐР°Р№ РІР°Р»СЏС”С‚СЊСЃСЏ РєРѕР»Рѕ С…Р°С‚Рё"
 
 [Iryna Ivakhnenko](https://www.facebook.com/iryna.ivakhnenko.9?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMyNjE5MTAxNjkxMTM1OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Дитяче харчування "Ласкаве телятко дві матки ссе"
+Р”РёС‚СЏС‡Рµ С…Р°СЂС‡СѓРІР°РЅРЅСЏ "Р›Р°СЃРєР°РІРµ С‚РµР»СЏС‚РєРѕ РґРІС– РјР°С‚РєРё СЃСЃРµ"
 
 [Iryna Ivakhnenko](https://www.facebook.com/iryna.ivakhnenko.9?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNTg2NjcwNjg4MzM5MDc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Висотні роботи "Ой нагорі два дубки"
+Р’РёСЃРѕС‚РЅС– СЂРѕР±РѕС‚Рё "РћР№ РЅР°РіРѕСЂС– РґРІР° РґСѓР±РєРё"
 
 [Iryna Ivakhnenko](https://www.facebook.com/iryna.ivakhnenko.9?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIxOTE0NDQ2NDUxNTI1MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Паркінг "Ой чий то кінь стоїть"
+РџР°СЂРєС–РЅРі "РћР№ С‡РёР№ С‚Рѕ РєС–РЅСЊ СЃС‚РѕС—С‚СЊ"
 
 [Iryna Ivakhnenko](https://www.facebook.com/iryna.ivakhnenko.9?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIyMDUxNjM4MTA0MDQxNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Суші-бар "Знов за рибу гроші"
+РЎСѓС€С–-Р±Р°СЂ "Р—РЅРѕРІ Р·Р° СЂРёР±Сѓ РіСЂРѕС€С–"
 
 [Antonina Yurchenko](https://www.facebook.com/yurchenko.antonina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE3MjEwOTY0MjE3MjMyNTM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Iryna Ivakhnenko](https://www.facebook.com/iryna.ivakhnenko.9?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) ватра!![??](prisl1_files/image008.png)
+[Iryna Ivakhnenko](https://www.facebook.com/iryna.ivakhnenko.9?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РІР°С‚СЂР°!![??](prisl1_files/image008.png)
 
 [Iryna Ventova](https://www.facebook.com/iryna.ventova?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY3NDgxODM3MTE5Njk0MDg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Не знаю, чи було:
+РќРµ Р·РЅР°СЋ, С‡Рё Р±СѓР»Рѕ:
 
-Перукарня «Волосся не зуби - відросте»
+РџРµСЂСѓРєР°СЂРЅСЏ В«Р’РѕР»РѕСЃСЃСЏ РЅРµ Р·СѓР±Рё - РІС–РґСЂРѕСЃС‚РµВ»
 
 [Ivan Zhekov](https://www.facebook.com/ivan.zhekov.7?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE3NDM4Mjg0ODI3NTc2MTg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Кадрове агентство: Шо не рожа, то Сірожа
+РљР°РґСЂРѕРІРµ Р°РіРµРЅС‚СЃС‚РІРѕ: РЁРѕ РЅРµ СЂРѕР¶Р°, С‚Рѕ РЎС–СЂРѕР¶Р°
 
-[Мирослава Магунь-Мороз](https://www.facebook.com/mirka.mahun.moroz?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE2NDQ3NDMxMDI2ODM4NTg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњРёСЂРѕСЃР»Р°РІР° РњР°РіСѓРЅСЊ-РњРѕСЂРѕР·](https://www.facebook.com/mirka.mahun.moroz?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE2NDQ3NDMxMDI2ODM4NTg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Будівельний гіпермаркет "Все до лампочки", школа етикету "Пасує, як сраці фіранки"
+Р‘СѓРґС–РІРµР»СЊРЅРёР№ РіС–РїРµСЂРјР°СЂРєРµС‚ "Р’СЃРµ РґРѕ Р»Р°РјРїРѕС‡РєРё", С€РєРѕР»Р° РµС‚РёРєРµС‚Сѓ "РџР°СЃСѓС”, СЏРє СЃСЂР°С†С– С„С–СЂР°РЅРєРё"
 
 [Iryna Ivakhnenko](https://www.facebook.com/iryna.ivakhnenko.9?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcxMDA5OTMzNjMyNzg0MTk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Магазин музичних інструментів "Взяв би я бандуру"
+РњР°РіР°Р·РёРЅ РјСѓР·РёС‡РЅРёС… С–РЅСЃС‚СЂСѓРјРµРЅС‚С–РІ "Р’Р·СЏРІ Р±Рё СЏ Р±Р°РЅРґСѓСЂСѓ"
 
-[Валерій Пекар](https://www.facebook.com/valerii.pekar?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE5NzYwNjQ5NjYxODc4Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р’Р°Р»РµСЂС–Р№ РџРµРєР°СЂ](https://www.facebook.com/valerii.pekar?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE5NzYwNjQ5NjYxODc4Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Виноробня "Сам-Жене та Сам-П'є" (вимовляється з прононсом Sa-Jene-de-Sa-Pie)
+Р’РёРЅРѕСЂРѕР±РЅСЏ "РЎР°Рј-Р–РµРЅРµ С‚Р° РЎР°Рј-Рџ'С”" (РІРёРјРѕРІР»СЏС”С‚СЊСЃСЏ Р· РїСЂРѕРЅРѕРЅСЃРѕРј Sa-Jene-de-Sa-Pie)
 
 [Valerya Boeva](https://www.facebook.com/profile.php?id=100003366537659&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzk5MzM5MTA2NTI5Njk1Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Магазин типу все по 5 грн. "Яка ціна, така й срака"
+РњР°РіР°Р·РёРЅ С‚РёРїСѓ РІСЃРµ РїРѕ 5 РіСЂРЅ. "РЇРєР° С†С–РЅР°, С‚Р°РєР° Р№ СЃСЂР°РєР°"
 
-[Олена Гордієнко](https://www.facebook.com/mariulka.kirov?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMxNTAzNzI3NDE5MjM5NDc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»РµРЅР° Р“РѕСЂРґС–С”РЅРєРѕ](https://www.facebook.com/mariulka.kirov?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMxNTAzNzI3NDE5MjM5NDc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Туристичне агентство " їдь під три чорти";
+РўСѓСЂРёСЃС‚РёС‡РЅРµ Р°РіРµРЅС‚СЃС‚РІРѕ " С—РґСЊ РїС–Рґ С‚СЂРё С‡РѕСЂС‚Рё";
 
-Офтальмологічний центр "Щоб тобі повилазило"
+РћС„С‚Р°Р»СЊРјРѕР»РѕРіС–С‡РЅРёР№ С†РµРЅС‚СЂ "Р©РѕР± С‚РѕР±С– РїРѕРІРёР»Р°Р·РёР»Рѕ"
 
-[Людмила Давиденко](https://www.facebook.com/loudmilka?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzk4MTE1Mjk4NjMwMjQ1Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р›СЋРґРјРёР»Р° Р”Р°РІРёРґРµРЅРєРѕ](https://www.facebook.com/loudmilka?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzk4MTE1Mjk4NjMwMjQ1Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Виробництво різносолів і ковбас "Піп сіль тре, кум теля пасе"
+Р’РёСЂРѕР±РЅРёС†С‚РІРѕ СЂС–Р·РЅРѕСЃРѕР»С–РІ С– РєРѕРІР±Р°СЃ "РџС–Рї СЃС–Р»СЊ С‚СЂРµ, РєСѓРј С‚РµР»СЏ РїР°СЃРµ"
 
 [Yanina Danylchenko](https://www.facebook.com/yanina.danylchenko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2NjAzOTAyNjA4NTkyODQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Авіакомпанія "Буває, що й корова літає".
+РђРІС–Р°РєРѕРјРїР°РЅС–СЏ "Р‘СѓРІР°С”, С‰Рѕ Р№ РєРѕСЂРѕРІР° Р»С–С‚Р°С”".
 
 [Vuyko Anjey](https://www.facebook.com/anjey.ded?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcyNTY1NzY4OTM4MzkxMg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Буковельський ТЦК "Гарно їсти, добре спати - Бог повістку мусить дати".
+Р‘СѓРєРѕРІРµР»СЊСЃСЊРєРёР№ РўР¦Рљ "Р“Р°СЂРЅРѕ С—СЃС‚Рё, РґРѕР±СЂРµ СЃРїР°С‚Рё - Р‘РѕРі РїРѕРІС–СЃС‚РєСѓ РјСѓСЃРёС‚СЊ РґР°С‚Рё".
 
 [Olga Beid](https://www.facebook.com/olga.bejd?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzgzMzQ2ODk3ODQ1ODUwOA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Проектне бюро або кабінет психолога "Кожна бздинка як малинка"
+РџСЂРѕРµРєС‚РЅРµ Р±СЋСЂРѕ Р°Р±Рѕ РєР°Р±С–РЅРµС‚ РїСЃРёС…РѕР»РѕРіР° "РљРѕР¶РЅР° Р±Р·РґРёРЅРєР° СЏРє РјР°Р»РёРЅРєР°"
 
 [Ivan Zhekov](https://www.facebook.com/ivan.zhekov.7?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzNDY1ODc5NTk1ODEyMjI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Клініка: Не пиздіть, бо серце стане.
+РљР»С–РЅС–РєР°: РќРµ РїРёР·РґС–С‚СЊ, Р±Рѕ СЃРµСЂС†Рµ СЃС‚Р°РЅРµ.
 
-[Мирослава Магунь-Мороз](https://www.facebook.com/mirka.mahun.moroz?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE5NDYwMjgxMDI0NTA5OTI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњРёСЂРѕСЃР»Р°РІР° РњР°РіСѓРЅСЊ-РњРѕСЂРѕР·](https://www.facebook.com/mirka.mahun.moroz?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE5NDYwMjgxMDI0NTA5OTI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Відпочинковий комплекс "Срака, банька, калабанька"
+Р’С–РґРїРѕС‡РёРЅРєРѕРІРёР№ РєРѕРјРїР»РµРєСЃ "РЎСЂР°РєР°, Р±Р°РЅСЊРєР°, РєР°Р»Р°Р±Р°РЅСЊРєР°"
 
 [Larysa Luzanova](https://www.facebook.com/larysa.luzanova?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY4ODEwNzkwNjYxOTUxOA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ательє пошиття одягу «Косо-криво, аби живо»
+РђС‚РµР»СЊС” РїРѕС€РёС‚С‚СЏ РѕРґСЏРіСѓ В«РљРѕСЃРѕ-РєСЂРёРІРѕ, Р°Р±Рё Р¶РёРІРѕВ»
 
 [Larysa Luzanova](https://www.facebook.com/larysa.luzanova?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0MDM1ODcxMTgyMzEwMg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Служба таксі «На кривій кобилі»
+РЎР»СѓР¶Р±Р° С‚Р°РєСЃС– В«РќР° РєСЂРёРІС–Р№ РєРѕР±РёР»С–В»
 
 [Iryna Ivakhnenko](https://www.facebook.com/iryna.ivakhnenko.9?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzNzU5MDQ4MzY2NjQ0MjM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Колекторська служба "Пожалів вовк порося" (від'їв ніжки, та й уся)
+РљРѕР»РµРєС‚РѕСЂСЃСЊРєР° СЃР»СѓР¶Р±Р° "РџРѕР¶Р°Р»С–РІ РІРѕРІРє РїРѕСЂРѕСЃСЏ" (РІС–Рґ'С—РІ РЅС–Р¶РєРё, С‚Р° Р№ СѓСЃСЏ)
 
 [Olena Maierchuk](https://www.facebook.com/profile.php?id=100012249885568&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMDU5MTk3MTYwODIwOTA1&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Агентство надання послуг"Як рак на горі свисне"
+РђРіРµРЅС‚СЃС‚РІРѕ РЅР°РґР°РЅРЅСЏ РїРѕСЃР»СѓРі"РЇРє СЂР°Рє РЅР° РіРѕСЂС– СЃРІРёСЃРЅРµ"
 
 [Iryna Ivakhnenko](https://www.facebook.com/iryna.ivakhnenko.9?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2MzM3OTU3OTAyNzQ4MTg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Служба доставки "Муха в окропі"
+РЎР»СѓР¶Р±Р° РґРѕСЃС‚Р°РІРєРё "РњСѓС…Р° РІ РѕРєСЂРѕРїС–"
 
 [Iryna Ivakhnenko](https://www.facebook.com/iryna.ivakhnenko.9?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIzMzUwODg4OTcyNjY4NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Пошук родичів у архівах "Чорт козі дядько"
+РџРѕС€СѓРє СЂРѕРґРёС‡С–РІ Сѓ Р°СЂС…С–РІР°С… "Р§РѕСЂС‚ РєРѕР·С– РґСЏРґСЊРєРѕ"
 
 [Ihor Nikolenko](https://www.facebook.com/Ihor.Nikolenko.LinkedIn?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM1MTg3OTc1MDczNjQ4MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-"Срака-мотика" клуб агрономів
+"РЎСЂР°РєР°-РјРѕС‚РёРєР°" РєР»СѓР± Р°РіСЂРѕРЅРѕРјС–РІ
 
 [Oksana Chervonaya](https://www.facebook.com/oksana.chervonaya?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNzM0OTQ3NjM4NzA2Njk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Контора, яка займається пасажирськими перевезеннями- "Баба з возу..."
+РљРѕРЅС‚РѕСЂР°, СЏРєР° Р·Р°Р№РјР°С”С‚СЊСЃСЏ РїР°СЃР°Р¶РёСЂСЃСЊРєРёРјРё РїРµСЂРµРІРµР·РµРЅРЅСЏРјРё- "Р‘Р°Р±Р° Р· РІРѕР·Сѓ..."
 
 [Zhanna Kondrashova](https://www.facebook.com/zhannakondr?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMxOTE4ODY0NDA5MjM4Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Хірургічне відділення « Заший ротяку по саму сраку»
+РҐС–СЂСѓСЂРіС–С‡РЅРµ РІС–РґРґС–Р»РµРЅРЅСЏ В« Р—Р°С€РёР№ СЂРѕС‚СЏРєСѓ РїРѕ СЃР°РјСѓ СЃСЂР°РєСѓВ»
 
 [Alexandro Ivanov](https://www.facebook.com/alexandro.ivanov.581525?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4NTk3MTYyMDk5MjcxNg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Гранітний кар'єр "Лупаймо сю скалу!"
+Р“СЂР°РЅС–С‚РЅРёР№ РєР°СЂ'С”СЂ "Р›СѓРїР°Р№РјРѕ СЃСЋ СЃРєР°Р»Сѓ!"
 
-[Валентина Попелюшка](https://www.facebook.com/popeljushka2010?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIxOTAxMjMyNzg2MTk4OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р’Р°Р»РµРЅС‚РёРЅР° РџРѕРїРµР»СЋС€РєР°](https://www.facebook.com/popeljushka2010?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIxOTAxMjMyNzg2MTk4OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Снайперська школа "Пальцем в небо"
+РЎРЅР°Р№РїРµСЂСЃСЊРєР° С€РєРѕР»Р° "РџР°Р»СЊС†РµРј РІ РЅРµР±Рѕ"
 
 [Laurentina Gold](https://www.facebook.com/laurentina.gold?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY3NDgyOTcwODA4MjM4OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Магазин здорової їжі "У гречку скочів"
+РњР°РіР°Р·РёРЅ Р·РґРѕСЂРѕРІРѕС— С—Р¶С– "РЈ РіСЂРµС‡РєСѓ СЃРєРѕС‡С–РІ"
 
-Ескорт-агенція для жінок "Ґаля балована"
+Р•СЃРєРѕСЂС‚-Р°РіРµРЅС†С–СЏ РґР»СЏ Р¶С–РЅРѕРє "ТђР°Р»СЏ Р±Р°Р»РѕРІР°РЅР°"
 
-[Олена Гордієнко](https://www.facebook.com/mariulka.kirov?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMzMTc3NDEzMjg2NTA5NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»РµРЅР° Р“РѕСЂРґС–С”РЅРєРѕ](https://www.facebook.com/mariulka.kirov?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMzMTc3NDEzMjg2NTA5NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Автошкола "Олені на дорозі"
+РђРІС‚РѕС€РєРѕР»Р° "РћР»РµРЅС– РЅР° РґРѕСЂРѕР·С–"
 
-[Михаил Гуленков](https://www.facebook.com/profile.php?id=100026975154317&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE2NjA4MTU5Mjc3NDA2Mzg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњРёС…Р°РёР» Р“СѓР»РµРЅРєРѕРІ](https://www.facebook.com/profile.php?id=100026975154317&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE2NjA4MTU5Mjc3NDA2Mzg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Суші бар «Суші з хрюші»
+РЎСѓС€С– Р±Р°СЂ В«РЎСѓС€С– Р· С…СЂСЋС€С–В»
 
-[Олена Тіманова](https://www.facebook.com/profile.php?id=100007170489894&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIxMjUwMTQ0NTA2NDc3OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»РµРЅР° РўС–РјР°РЅРѕРІР°](https://www.facebook.com/profile.php?id=100007170489894&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIxMjUwMTQ0NTA2NDc3OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Офтальмологія "До ср. ки карі очі"
+РћС„С‚Р°Р»СЊРјРѕР»РѕРіС–СЏ "Р”Рѕ СЃСЂ. РєРё РєР°СЂС– РѕС‡С–"
 
-[Олена Гордієнко](https://www.facebook.com/mariulka.kirov?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwMDA1MzU5ODMyNjUxOQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»РµРЅР° Р“РѕСЂРґС–С”РЅРєРѕ](https://www.facebook.com/mariulka.kirov?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwMDA1MzU5ODMyNjUxOQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ресторан "По саме горло ситий";
+Р РµСЃС‚РѕСЂР°РЅ "РџРѕ СЃР°РјРµ РіРѕСЂР»Рѕ СЃРёС‚РёР№";
 
-"Тут публіка - сім душ та півбублика"
+"РўСѓС‚ РїСѓР±Р»С–РєР° - СЃС–Рј РґСѓС€ С‚Р° РїС–РІР±СѓР±Р»РёРєР°"
 
 [Oxana Oxana](https://www.facebook.com/oxana.malisch?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwMTY3NDY1ODEyMTUwNA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Нічний клуб "танцювала риба з раком".
+РќС–С‡РЅРёР№ РєР»СѓР± "С‚Р°РЅС†СЋРІР°Р»Р° СЂРёР±Р° Р· СЂР°РєРѕРј".
 
 [Alexandro Ivanov](https://www.facebook.com/alexandro.ivanov.581525?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIzMjY4MTM4Mjg1ODczMw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Туристична агенція "На всі чотири сторони"
+РўСѓСЂРёСЃС‚РёС‡РЅР° Р°РіРµРЅС†С–СЏ "РќР° РІСЃС– С‡РѕС‚РёСЂРё СЃС‚РѕСЂРѕРЅРё"
 
 [Ivan Zhekov](https://www.facebook.com/ivan.zhekov.7?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY5OTU0MDIwODcxOTA5MzE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Школа комп?ютерної грамоти: тиць пиздиць
+РЁРєРѕР»Р° РєРѕРјРї?СЋС‚РµСЂРЅРѕС— РіСЂР°РјРѕС‚Рё: С‚РёС†СЊ РїРёР·РґРёС†СЊ
 
-[Гоша Мелюхнов](https://www.facebook.com/igoridzadza?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg1NDA5OTg0OTQwNzg2Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р“РѕС€Р° РњРµР»СЋС…РЅРѕРІ](https://www.facebook.com/igoridzadza?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg1NDA5OTg0OTQwNzg2Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ветеринарний кабінет "Срав пес, перділи гуси"
+Р’РµС‚РµСЂРёРЅР°СЂРЅРёР№ РєР°Р±С–РЅРµС‚ "РЎСЂР°РІ РїРµСЃ, РїРµСЂРґС–Р»Рё РіСѓСЃРё"
 
 [Nataliia Klochanina](https://www.facebook.com/nklochanina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIzMjQ2NDEyNjIxOTMzNA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон кухонь "До ср@ці дверці"
+РЎР°Р»РѕРЅ РєСѓС…РѕРЅСЊ "Р”Рѕ СЃСЂ@С†С– РґРІРµСЂС†С–"
 
-[Сергій Соколовський](https://www.facebook.com/serh.sokolovsky?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNDA4NjkzMTY5MjQ5NzA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РЎРµСЂРіС–Р№ РЎРѕРєРѕР»РѕРІСЃСЊРєРёР№](https://www.facebook.com/serh.sokolovsky?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNDA4NjkzMTY5MjQ5NzA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Онлайн-казино "Згоріла хата, гори й сарай"
+РћРЅР»Р°Р№РЅ-РєР°Р·РёРЅРѕ "Р—РіРѕСЂС–Р»Р° С…Р°С‚Р°, РіРѕСЂРё Р№ СЃР°СЂР°Р№"
 
 [Nataliia Klochanina](https://www.facebook.com/nklochanina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzNzkxNzkyNzI5NTU2Mjg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Екскорт-агенція "Видно пана по халявах"
+Р•РєСЃРєРѕСЂС‚-Р°РіРµРЅС†С–СЏ "Р’РёРґРЅРѕ РїР°РЅР° РїРѕ С…Р°Р»СЏРІР°С…"
 
-[Галина Кравцова](https://www.facebook.com/profile.php?id=100013584784762&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzkwNDEwODY2Nzc0NjA1MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р“Р°Р»РёРЅР° РљСЂР°РІС†РѕРІР°](https://www.facebook.com/profile.php?id=100013584784762&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzkwNDEwODY2Nzc0NjA1MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Вокально-хорова студія «Кожний х\*й на свій струй»
+Р’РѕРєР°Р»СЊРЅРѕ-С…РѕСЂРѕРІР° СЃС‚СѓРґС–СЏ В«РљРѕР¶РЅРёР№ С…\*Р№ РЅР° СЃРІС–Р№ СЃС‚СЂСѓР№В»
 
-[Ярослава Дзира](https://www.facebook.com/yadzyra?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzNDk4NzE3MjU2MTM3MjQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РЇСЂРѕСЃР»Р°РІР° Р”Р·РёСЂР°](https://www.facebook.com/yadzyra?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzNDk4NzE3MjU2MTM3MjQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Курси підготовки випускників до тестів з різних предметів “Не знав, не знав та й забув». Окремі предмети: математика - «нуль без палички», мови -«язиката Феська», хімія -«вода в ступі», фізика - «мокре горить», географія - «може море широке й глибоке»…
+РљСѓСЂСЃРё РїС–РґРіРѕС‚РѕРІРєРё РІРёРїСѓСЃРєРЅРёРєС–РІ РґРѕ С‚РµСЃС‚С–РІ Р· СЂС–Р·РЅРёС… РїСЂРµРґРјРµС‚С–РІ вЂњРќРµ Р·РЅР°РІ, РЅРµ Р·РЅР°РІ С‚Р° Р№ Р·Р°Р±СѓРІВ». РћРєСЂРµРјС– РїСЂРµРґРјРµС‚Рё: РјР°С‚РµРјР°С‚РёРєР° - В«РЅСѓР»СЊ Р±РµР· РїР°Р»РёС‡РєРёВ», РјРѕРІРё -В«СЏР·РёРєР°С‚Р° Р¤РµСЃСЊРєР°В», С…С–РјС–СЏ -В«РІРѕРґР° РІ СЃС‚СѓРїС–В», С„С–Р·РёРєР° - В«РјРѕРєСЂРµ РіРѕСЂРёС‚СЊВ», РіРµРѕРіСЂР°С„С–СЏ - В«РјРѕР¶Рµ РјРѕСЂРµ С€РёСЂРѕРєРµ Р№ РіР»РёР±РѕРєРµВ»вЂ¦
 
-[Анна Куприенко](https://www.facebook.com/rimmaginsburg?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNzAzNDU5MzY5NjA2NDI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђРЅРЅР° РљСѓРїСЂРёРµРЅРєРѕ](https://www.facebook.com/rimmaginsburg?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNzAzNDU5MzY5NjA2NDI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Спілка стедаперов «Сам п?ю,сам гуляю, сам стелюся,сам лягаю».
+РЎРїС–Р»РєР° СЃС‚РµРґР°РїРµСЂРѕРІ В«РЎР°Рј Рї?СЋ,СЃР°Рј РіСѓР»СЏСЋ, СЃР°Рј СЃС‚РµР»СЋСЃСЏ,СЃР°Рј Р»СЏРіР°СЋВ».
 
 [Helen Adamantis](https://www.facebook.com/helen.adamantis?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzk5NTkwNTAyNDk5NTYyNA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-VIP М?ясний бутік: «Язик без кісток»
+VIP Рњ?СЏСЃРЅРёР№ Р±СѓС‚С–Рє: В«РЇР·РёРє Р±РµР· РєС–СЃС‚РѕРєВ»
 
-[Надія Левчук](https://www.facebook.com/profile.php?id=100019460312628&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzczNzgyNzY4NDg1MDQyOA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РќР°РґС–СЏ Р›РµРІС‡СѓРє](https://www.facebook.com/profile.php?id=100019460312628&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzczNzgyNzY4NDg1MDQyOA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ресторація "Захотіла срака меду"
+Р РµСЃС‚РѕСЂР°С†С–СЏ "Р—Р°С…РѕС‚С–Р»Р° СЃСЂР°РєР° РјРµРґСѓ"
 
-[Елена Андрусевич](https://www.facebook.com/profile.php?id=100017424242085&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzNjkxNzcyNTA2NjU5NDg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р•Р»РµРЅР° РђРЅРґСЂСѓСЃРµРІРёС‡](https://www.facebook.com/profile.php?id=100017424242085&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzNjkxNzcyNTA2NjU5NDg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Новостний сайт "Говорили, балакали, сіли й накакали".
+РќРѕРІРѕСЃС‚РЅРёР№ СЃР°Р№С‚ "Р“РѕРІРѕСЂРёР»Рё, Р±Р°Р»Р°РєР°Р»Рё, СЃС–Р»Рё Р№ РЅР°РєР°РєР°Р»Рё".
 
-[Елена Андрусевич](https://www.facebook.com/profile.php?id=100017424242085&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0NTk0NjcwNzg5MTAwMw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р•Р»РµРЅР° РђРЅРґСЂСѓСЃРµРІРёС‡](https://www.facebook.com/profile.php?id=100017424242085&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0NTk0NjcwNzg5MTAwMw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Будівельна фірма "Мастєра. Один сере, два розтира."
+Р‘СѓРґС–РІРµР»СЊРЅР° С„С–СЂРјР° "РњР°СЃС‚С”СЂР°. РћРґРёРЅ СЃРµСЂРµ, РґРІР° СЂРѕР·С‚РёСЂР°."
 
 [Victor Datsko](https://www.facebook.com/profile.php?id=61550830831300&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzMDAwOTI2ODQwMjQ1NjI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Гей клуб: Європейська Солідарність
+Р“РµР№ РєР»СѓР±: Р„РІСЂРѕРїРµР№СЃСЊРєР° РЎРѕР»С–РґР°СЂРЅС–СЃС‚СЊ
 
 [Olena Ryzhaieva](https://www.facebook.com/elena.ryzhayeva?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI2NjAxMjI5NTg3MjU2MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Victor Datsko](https://www.facebook.com/profile.php?id=61550830831300&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) Ботоферма "Є на кого всіх собак повісити")
+[Victor Datsko](https://www.facebook.com/profile.php?id=61550830831300&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) Р‘РѕС‚РѕС„РµСЂРјР° "Р„ РЅР° РєРѕРіРѕ РІСЃС–С… СЃРѕР±Р°Рє РїРѕРІС–СЃРёС‚Рё")
 
 [Nataliia Klochanina](https://www.facebook.com/nklochanina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY0ODU5MjQ3NDA2NjMwNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Курси української мови: "Не для Гриця паляниця"
+РљСѓСЂСЃРё СѓРєСЂР°С—РЅСЃСЊРєРѕС— РјРѕРІРё: "РќРµ РґР»СЏ Р“СЂРёС†СЏ РїР°Р»СЏРЅРёС†СЏ"
 
 [Krapyvenko Dmytro](https://www.facebook.com/krapyvenko.dmytro?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI5MDQyODgwNzI2ODcwMA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Спа салон "Не тратьте, куме, сили". Салон краси "хвали мене, моя губонько", курси тімбілдінгу "за компанію і ...повісився"
+РЎРїР° СЃР°Р»РѕРЅ "РќРµ С‚СЂР°С‚СЊС‚Рµ, РєСѓРјРµ, СЃРёР»Рё". РЎР°Р»РѕРЅ РєСЂР°СЃРё "С…РІР°Р»Рё РјРµРЅРµ, РјРѕСЏ РіСѓР±РѕРЅСЊРєРѕ", РєСѓСЂСЃРё С‚С–РјР±С–Р»РґС–РЅРіСѓ "Р·Р° РєРѕРјРїР°РЅС–СЋ С– ...РїРѕРІС–СЃРёРІСЃСЏ"
 
-[Валентина Попелюшка](https://www.facebook.com/popeljushka2010?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNjc5NzkwMjQzNzAxMTA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р’Р°Р»РµРЅС‚РёРЅР° РџРѕРїРµР»СЋС€РєР°](https://www.facebook.com/popeljushka2010?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNjc5NzkwMjQzNzAxMTA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Шлюбна агенція "Кожній тварі - по парі"
+РЁР»СЋР±РЅР° Р°РіРµРЅС†С–СЏ "РљРѕР¶РЅС–Р№ С‚РІР°СЂС– - РїРѕ РїР°СЂС–"
 
-[Валентина Попелюшка](https://www.facebook.com/popeljushka2010?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwMDU0ODY1MjE4OTEyNg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р’Р°Р»РµРЅС‚РёРЅР° РџРѕРїРµР»СЋС€РєР°](https://www.facebook.com/popeljushka2010?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwMDU0ODY1MjE4OTEyNg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон виробів зі шкіри і хутра "Продажна шкура"
+РЎР°Р»РѕРЅ РІРёСЂРѕР±С–РІ Р·С– С€РєС–СЂРё С– С…СѓС‚СЂР° "РџСЂРѕРґР°Р¶РЅР° С€РєСѓСЂР°"
 
 [Oksana Dunpeald](https://www.facebook.com/Dunpealdd?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwNjMzODg1MDkxNzAxOA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Зали церемоній Сидір Бабі Рідний Федір.
+Р—Р°Р»Рё С†РµСЂРµРјРѕРЅС–Р№ РЎРёРґС–СЂ Р‘Р°Р±С– Р С–РґРЅРёР№ Р¤РµРґС–СЂ.
 
-Аграрна техніка, насіння та консультації від фірми 'Як зореш мілко то й вродить дідько'.
+РђРіСЂР°СЂРЅР° С‚РµС…РЅС–РєР°, РЅР°СЃС–РЅРЅСЏ С‚Р° РєРѕРЅСЃСѓР»СЊС‚Р°С†С–С— РІС–Рґ С„С–СЂРјРё 'РЇРє Р·РѕСЂРµС€ РјС–Р»РєРѕ С‚Рѕ Р№ РІСЂРѕРґРёС‚СЊ РґС–РґСЊРєРѕ'.
 
-Шлюбні агентства 'Кому як мара, йому як зоря'.…
+РЁР»СЋР±РЅС– Р°РіРµРЅС‚СЃС‚РІР° 'РљРѕРјСѓ СЏРє РјР°СЂР°, Р№РѕРјСѓ СЏРє Р·РѕСЂСЏ'.вЂ¦
 
 See more
 
 [Tatiana Shved Bezkorovaina](https://www.facebook.com/tatianashvedbezkorovaina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcxMTc1MTQ4MDM1ODg5NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Клініка приватного проктолога «Все до дупи».
+РљР»С–РЅС–РєР° РїСЂРёРІР°С‚РЅРѕРіРѕ РїСЂРѕРєС‚РѕР»РѕРіР° В«Р’СЃРµ РґРѕ РґСѓРїРёВ».
 
 [Nataliia Klochanina](https://www.facebook.com/nklochanina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMzE5NjczMDEyNjUxMzE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Закусочна "Жеримовчки"
+Р—Р°РєСѓСЃРѕС‡РЅР° "Р–РµСЂРёРјРѕРІС‡РєРё"
 
 [Alexandro Ivanov](https://www.facebook.com/alexandro.ivanov.581525?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY4ODk2MDMzMzE3NjMyOA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Центр українсько-ізраїльської дружби "Сол-ой-вей"
+Р¦РµРЅС‚СЂ СѓРєСЂР°С—РЅСЃСЊРєРѕ-С–Р·СЂР°С—Р»СЊСЃСЊРєРѕС— РґСЂСѓР¶Р±Рё "РЎРѕР»-РѕР№-РІРµР№"
 
 [Nataliia Klochanina](https://www.facebook.com/nklochanina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY5NDQ4MTA0MjU2NzA1NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Сауна "Дурень до мила"
+РЎР°СѓРЅР° "Р”СѓСЂРµРЅСЊ РґРѕ РјРёР»Р°"
 
-[Олена Бринза](https://www.facebook.com/brynza.elena?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0ODg5MjAxNzQ3MDE3OTE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»РµРЅР° Р‘СЂРёРЅР·Р°](https://www.facebook.com/brynza.elena?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0ODg5MjAxNzQ3MDE3OTE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Фітнесцентр (спортзал, спорткомплекс) ""Гуртом і батька легше бить"
+Р¤С–С‚РЅРµСЃС†РµРЅС‚СЂ (СЃРїРѕСЂС‚Р·Р°Р», СЃРїРѕСЂС‚РєРѕРјРїР»РµРєСЃ) ""Р“СѓСЂС‚РѕРј С– Р±Р°С‚СЊРєР° Р»РµРіС€Рµ Р±РёС‚СЊ"
 
 [Andrew Sokolov](https://www.facebook.com/adekvaten?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY2MDU5OTQ3OTM4NjA4MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Гриль-паб "Поросяйво"
+Р“СЂРёР»СЊ-РїР°Р± "РџРѕСЂРѕСЃСЏР№РІРѕ"
 
 [Nataliia Klochanina](https://www.facebook.com/nklochanina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMyMjI5MTM2MzcxMjc3Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Вегетаріанський магазин "Ні риба, ні м'ясо"
+Р’РµРіРµС‚Р°СЂС–Р°РЅСЃСЊРєРёР№ РјР°РіР°Р·РёРЅ "РќС– СЂРёР±Р°, РЅС– Рј'СЏСЃРѕ"
 
 [Yuliya Melamed](https://www.facebook.com/profile.php?id=100009030125336&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNDU0OTM5NjYxMjU3MTU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Нова аплікація по геолокації "Через Кринички на Бердичів"
+РќРѕРІР° Р°РїР»С–РєР°С†С–СЏ РїРѕ РіРµРѕР»РѕРєР°С†С–С— "Р§РµСЂРµР· РљСЂРёРЅРёС‡РєРё РЅР° Р‘РµСЂРґРёС‡С–РІ"
 
 [Anna Daineko](https://www.facebook.com/profile.php?id=100004841160430&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY1NTkyMDU4NjM0Nzg1Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Басейн "Плили-плили, а на березі вс@алися", ритуальний дім "Не лізь поперед батька в пекло"
+Р‘Р°СЃРµР№РЅ "РџР»РёР»Рё-РїР»РёР»Рё, Р° РЅР° Р±РµСЂРµР·С– РІСЃ@Р°Р»РёСЃСЏ", СЂРёС‚СѓР°Р»СЊРЅРёР№ РґС–Рј "РќРµ Р»С–Р·СЊ РїРѕРїРµСЂРµРґ Р±Р°С‚СЊРєР° РІ РїРµРєР»Рѕ"
 
 [Oksana Bondar](https://www.facebook.com/oksana.bondar.bonart?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4OTUxNzUyNzI2OTc2MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Інженерне бюро з пожежобезпеки «Горів сарай - гори й хата».
+Р†РЅР¶РµРЅРµСЂРЅРµ Р±СЋСЂРѕ Р· РїРѕР¶РµР¶РѕР±РµР·РїРµРєРё В«Р“РѕСЂС–РІ СЃР°СЂР°Р№ - РіРѕСЂРё Р№ С…Р°С‚Р°В».
 
 [Yelizaveta Bart](https://www.facebook.com/lebedliza?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMzNjA1MDgzMjMxNDU0OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Дім розпусти "Їб.в- дрімав"
+Р”С–Рј СЂРѕР·РїСѓСЃС‚Рё "Р‡Р±.РІ- РґСЂС–РјР°РІ"
 
 [Anna Shvachko](https://www.facebook.com/anna.shvachko.777?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMwNTM4Njk2NTY4Mzg1OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Модельне агентство "вискочила коза з маку, показала батьку сраку "
+РњРѕРґРµР»СЊРЅРµ Р°РіРµРЅС‚СЃС‚РІРѕ "РІРёСЃРєРѕС‡РёР»Р° РєРѕР·Р° Р· РјР°РєСѓ, РїРѕРєР°Р·Р°Р»Р° Р±Р°С‚СЊРєСѓ СЃСЂР°РєСѓ "
 
-[Ольга Радиш](https://www.facebook.com/profile.php?id=100079962630348&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwODA0NTY4NDA1MjQ2Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»СЊРіР° Р Р°РґРёС€](https://www.facebook.com/profile.php?id=100079962630348&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwODA0NTY4NDA1MjQ2Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Дерев'яні рами від столярно-ремонтної фірми"Стук-гряк - і єсть п'ятак".
+Р”РµСЂРµРІ'СЏРЅС– СЂР°РјРё РІС–Рґ СЃС‚РѕР»СЏСЂРЅРѕ-СЂРµРјРѕРЅС‚РЅРѕС— С„С–СЂРјРё"РЎС‚СѓРє-РіСЂСЏРє - С– С”СЃС‚СЊ Рї'СЏС‚Р°Рє".
 
-(хоча так взагалі казали про ковалів))
+(С…РѕС‡Р° С‚Р°Рє РІР·Р°РіР°Р»С– РєР°Р·Р°Р»Рё РїСЂРѕ РєРѕРІР°Р»С–РІ))
 
-[Ольга Радиш](https://www.facebook.com/profile.php?id=100079962630348&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg1NjQzMjgxOTI2NjA1NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»СЊРіР° Р Р°РґРёС€](https://www.facebook.com/profile.php?id=100079962630348&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg1NjQzMjgxOTI2NjA1NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Елітний дім для самотніх старих "Гуляй баба, гуляй дєд".
+Р•Р»С–С‚РЅРёР№ РґС–Рј РґР»СЏ СЃР°РјРѕС‚РЅС–С… СЃС‚Р°СЂРёС… "Р“СѓР»СЏР№ Р±Р°Р±Р°, РіСѓР»СЏР№ РґС”Рґ".
 
 [Olesia Kovtun](https://www.facebook.com/BelladonaLZ?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIxMDQzNTU1ODczNTEwNA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон краси "Дідова дочка як павочка, а бабина, як засраночка"
+РЎР°Р»РѕРЅ РєСЂР°СЃРё "Р”С–РґРѕРІР° РґРѕС‡РєР° СЏРє РїР°РІРѕС‡РєР°, Р° Р±Р°Р±РёРЅР°, СЏРє Р·Р°СЃСЂР°РЅРѕС‡РєР°"
 
-Магазин дизайнерського одягу "Як чорт на утрєнік"
+РњР°РіР°Р·РёРЅ РґРёР·Р°Р№РЅРµСЂСЃСЊРєРѕРіРѕ РѕРґСЏРіСѓ "РЇРє С‡РѕСЂС‚ РЅР° СѓС‚СЂС”РЅС–Рє"
 
-[Дмитро Семчишин](https://www.facebook.com/DmytroSemchyshyn?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg5OTY4OTQ5ODE2Nzk4OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р”РјРёС‚СЂРѕ РЎРµРјС‡РёС€РёРЅ](https://www.facebook.com/DmytroSemchyshyn?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg5OTY4OTQ5ODE2Nzk4OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Аграрний холдинг "Скок у гречку".
+РђРіСЂР°СЂРЅРёР№ С…РѕР»РґРёРЅРі "РЎРєРѕРє Сѓ РіСЂРµС‡РєСѓ".
 
 [Olena Sinchenko](https://www.facebook.com/olena.sinchenko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNDc5NDc0NjI0OTY3NTM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Будинок розпусти "файно, Ганьку, лягай ще раз"
+Р‘СѓРґРёРЅРѕРє СЂРѕР·РїСѓСЃС‚Рё "С„Р°Р№РЅРѕ, Р“Р°РЅСЊРєСѓ, Р»СЏРіР°Р№ С‰Рµ СЂР°Р·"
 
 [Christina Martsynkovska](https://www.facebook.com/christina.martsynkovska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM1NzM1NDc0MzI4OTc1MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Послуги з проведення переговорів "Ситий голодному"
+РџРѕСЃР»СѓРіРё Р· РїСЂРѕРІРµРґРµРЅРЅСЏ РїРµСЂРµРіРѕРІРѕСЂС–РІ "РЎРёС‚РёР№ РіРѕР»РѕРґРЅРѕРјСѓ"
 
 [Olena Sinchenko](https://www.facebook.com/olena.sinchenko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY2MzE2OTgzMTY5NTEyNTM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Метеорологічна платформа "З великої хмари малий дощ"
+РњРµС‚РµРѕСЂРѕР»РѕРіС–С‡РЅР° РїР»Р°С‚С„РѕСЂРјР° "Р— РІРµР»РёРєРѕС— С…РјР°СЂРё РјР°Р»РёР№ РґРѕС‰"
 
 [Christina Martsynkovska](https://www.facebook.com/christina.martsynkovska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNDQ1ODg0MzM2NDI1OTU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон депіляції "Мох і болото"
+РЎР°Р»РѕРЅ РґРµРїС–Р»СЏС†С–С— "РњРѕС… С– Р±РѕР»РѕС‚Рѕ"
 
 [Christina Martsynkovska](https://www.facebook.com/christina.martsynkovska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0NjAwOTE3MTExODE0NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Центр генетичного аналізу "Василь бабі мати рідна"
+Р¦РµРЅС‚СЂ РіРµРЅРµС‚РёС‡РЅРѕРіРѕ Р°РЅР°Р»С–Р·Сѓ "Р’Р°СЃРёР»СЊ Р±Р°Р±С– РјР°С‚Рё СЂС–РґРЅР°"
 
 [Christina Martsynkovska](https://www.facebook.com/christina.martsynkovska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzgxMjA0MjM4MDY2NjY4Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Навігатор для вінничан "В Київ через Одесу"
+РќР°РІС–РіР°С‚РѕСЂ РґР»СЏ РІС–РЅРЅРёС‡Р°РЅ "Р’ РљРёС—РІ С‡РµСЂРµР· РћРґРµСЃСѓ"
 
-[Алла Цеменко](https://www.facebook.com/profile.php?id=100013963213335&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4OTM2MDYyMzg5Mzg3Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђР»Р»Р° Р¦РµРјРµРЅРєРѕ](https://www.facebook.com/profile.php?id=100013963213335&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4OTM2MDYyMzg5Mzg3Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Гіпермаркет «Мухи, мед, гівно і цвяхи» вже був?)
+Р“С–РїРµСЂРјР°СЂРєРµС‚ В«РњСѓС…Рё, РјРµРґ, РіС–РІРЅРѕ С– С†РІСЏС…РёВ» РІР¶Рµ Р±СѓРІ?)
 
 [Arthur Pereverziev](https://www.facebook.com/apereverziev?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE1MzA2OTExNzc2NzczNTQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Швачна майстерня «неприший кобилі хвіст»
+РЁРІР°С‡РЅР° РјР°Р№СЃС‚РµСЂРЅСЏ В«РЅРµРїСЂРёС€РёР№ РєРѕР±РёР»С– С…РІС–СЃС‚В»
 
-[Алла Цеменко](https://www.facebook.com/profile.php?id=100013963213335&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2NTEwMTUwNDE4MjUxMTY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђР»Р»Р° Р¦РµРјРµРЅРєРѕ](https://www.facebook.com/profile.php?id=100013963213335&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2NTEwMTUwNDE4MjUxMTY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Кравецька майстерня «Ні приший, ні пристібай»
+РљСЂР°РІРµС†СЊРєР° РјР°Р№СЃС‚РµСЂРЅСЏ В«РќС– РїСЂРёС€РёР№, РЅС– РїСЂРёСЃС‚С–Р±Р°Р№В»
 
 [Christina Martsynkovska](https://www.facebook.com/christina.martsynkovska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY2OTA5MjUxNzA5OTk2OTY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Центр психотерапії "Як солов'ю"
+Р¦РµРЅС‚СЂ РїСЃРёС…РѕС‚РµСЂР°РїС–С— "РЇРє СЃРѕР»РѕРІ'СЋ"
 
 [Arthur Pereverziev](https://www.facebook.com/apereverziev?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4NzY1ODQxNDIyMjg4OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Додаток -таксі «яке їхало таке і здибало»
+Р”РѕРґР°С‚РѕРє -С‚Р°РєСЃС– В«СЏРєРµ С—С…Р°Р»Рѕ С‚Р°РєРµ С– Р·РґРёР±Р°Р»РѕВ»
 
 [Michal Vasylkivsky](https://www.facebook.com/profile.php?id=100024964690700&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0NTU3ODkxMTMxNDY2MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Всім дякую, сміялися всім бліндажем!![??](prisl1_files/image009.png)
+Р’СЃС–Рј РґСЏРєСѓСЋ, СЃРјС–СЏР»РёСЃСЏ РІСЃС–Рј Р±Р»С–РЅРґР°Р¶РµРј!![??](prisl1_files/image009.png)
 
-Українці, ви неперевершені!
+РЈРєСЂР°С—РЅС†С–, РІРё РЅРµРїРµСЂРµРІРµСЂС€РµРЅС–!
 
-Тримаймося!…
+РўСЂРёРјР°Р№РјРѕСЃСЏ!вЂ¦
 
 [Arthur Pereverziev](https://www.facebook.com/apereverziev?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE1MjQ5NjM2NTUwMDY2NDE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Бар «як в суху землю»
+Р‘Р°СЂ В«СЏРє РІ СЃСѓС…Сѓ Р·РµРјР»СЋВ»
 
 [Olha Popadynets](https://www.facebook.com/olha.popadynets11?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzc3NzQyMDc5MDgwOTExMw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Магазин побутових товарів "Срака, миска та колиска"
+РњР°РіР°Р·РёРЅ РїРѕР±СѓС‚РѕРІРёС… С‚РѕРІР°СЂС–РІ "РЎСЂР°РєР°, РјРёСЃРєР° С‚Р° РєРѕР»РёСЃРєР°"
 
 [Christina Martsynkovska](https://www.facebook.com/christina.martsynkovska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcxMjc2NTM4NzQwNzI1NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Клініка "Як не срачка то болячка"
+РљР»С–РЅС–РєР° "РЇРє РЅРµ СЃСЂР°С‡РєР° С‚Рѕ Р±РѕР»СЏС‡РєР°"
 
 [Olha Popadynets](https://www.facebook.com/olha.popadynets11?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNDc5NDk2MDkyMTk0ODQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон нарощування вій "До сраки карі очі"
+РЎР°Р»РѕРЅ РЅР°СЂРѕС‰СѓРІР°РЅРЅСЏ РІС–Р№ "Р”Рѕ СЃСЂР°РєРё РєР°СЂС– РѕС‡С–"
 
-[XeLena LeLeka](https://www.facebook.com/XelenaLeLeka.runen.tarot?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0MjAzNjk0MTU0MTM2OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[XeLena LeLeka](https://www.facebook.com/XelenaLeLeka.runen.tarot?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0MjAzNjk0MTU0MTM2OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Санехнічні послуги (або Водоканал) "Пішла вода в хату!".
+РЎР°РЅРµС…РЅС–С‡РЅС– РїРѕСЃР»СѓРіРё (Р°Р±Рѕ Р’РѕРґРѕРєР°РЅР°Р») "РџС–С€Р»Р° РІРѕРґР° РІ С…Р°С‚Сѓ!".
 
 [Olha Popadynets](https://www.facebook.com/olha.popadynets11?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzgzOTg5Mjc1NDU5MjI5OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Басейн "Пливли, пливли, та й на березі всралися"
+Р‘Р°СЃРµР№РЅ "РџР»РёРІР»Рё, РїР»РёРІР»Рё, С‚Р° Р№ РЅР° Р±РµСЂРµР·С– РІСЃСЂР°Р»РёСЃСЏ"
 
 [Olha Popadynets](https://www.facebook.com/olha.popadynets11?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzk4MTA1NzczNjI5MTI0OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Туристичне бюро "Як до Києва рачки"
+РўСѓСЂРёСЃС‚РёС‡РЅРµ Р±СЋСЂРѕ "РЇРє РґРѕ РљРёС”РІР° СЂР°С‡РєРё"
 
 [Olha Popadynets](https://www.facebook.com/olha.popadynets11?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE2OTgxOTUxOTczNTQwMDc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Дієта "Гімна з'їж"
+Р”С–С”С‚Р° "Р“С–РјРЅР° Р·'С—Р¶"
 
 [Arthur Pereverziev](https://www.facebook.com/apereverziev?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4ODA0OTA5MjIwODc4MjE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Центр адвокації та лобізму «кому що, а курці просо»
+Р¦РµРЅС‚СЂ Р°РґРІРѕРєР°С†С–С— С‚Р° Р»РѕР±С–Р·РјСѓ В«РєРѕРјСѓ С‰Рѕ, Р° РєСѓСЂС†С– РїСЂРѕСЃРѕВ»
 
 [Arthur Pereverziev](https://www.facebook.com/apereverziev?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg0OTk3NzU3MzIwMzcyOQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Школа переговорів «говорили балакали, сіли й заплакали»
+РЁРєРѕР»Р° РїРµСЂРµРіРѕРІРѕСЂС–РІ В«РіРѕРІРѕСЂРёР»Рё Р±Р°Р»Р°РєР°Р»Рё, СЃС–Р»Рё Р№ Р·Р°РїР»Р°РєР°Р»РёВ»
 
 [Olha Popadynets](https://www.facebook.com/olha.popadynets11?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3NTg5ODU0NzMxMjQxMg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ресторан високої кухні "Їсти не срати, можна почекати"
+Р РµСЃС‚РѕСЂР°РЅ РІРёСЃРѕРєРѕС— РєСѓС…РЅС– "Р‡СЃС‚Рё РЅРµ СЃСЂР°С‚Рё, РјРѕР¶РЅР° РїРѕС‡РµРєР°С‚Рё"
 
-[Maryna Trepova](https://www.facebook.com/maryna.trepova?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNDAxNTk3NjEzOTM4MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[Maryna Trepova](https://www.facebook.com/maryna.trepova?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNDAxNTk3NjEzOTM4MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Бювєт "Несе Галя воду"
+Р‘СЋРІС”С‚ "РќРµСЃРµ Р“Р°Р»СЏ РІРѕРґСѓ"
 
 [Olha Popadynets](https://www.facebook.com/olha.popadynets11?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNDE2NjQwOTM2NTM2MTk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Студія звукозапису "Реве та стогне"
+РЎС‚СѓРґС–СЏ Р·РІСѓРєРѕР·Р°РїРёСЃСѓ "Р РµРІРµ С‚Р° СЃС‚РѕРіРЅРµ"
 
 [Olha Popadynets](https://www.facebook.com/olha.popadynets11?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg1OTk2MjUwOTEyMzgyOA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Генетична лабораторія, що спеціалізується на встановленні батьківства, "Батько наш Бандера"
+Р“РµРЅРµС‚РёС‡РЅР° Р»Р°Р±РѕСЂР°С‚РѕСЂС–СЏ, С‰Рѕ СЃРїРµС†С–Р°Р»С–Р·СѓС”С‚СЊСЃСЏ РЅР° РІСЃС‚Р°РЅРѕРІР»РµРЅРЅС– Р±Р°С‚СЊРєС–РІСЃС‚РІР°, "Р‘Р°С‚СЊРєРѕ РЅР°С€ Р‘Р°РЅРґРµСЂР°"
 
 [Natalia Ring](https://www.facebook.com/natalia.ring.7?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY0NjAzODQwMTAyOTI1MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ремонт мобільних "За битого два небитих".
+Р РµРјРѕРЅС‚ РјРѕР±С–Р»СЊРЅРёС… "Р—Р° Р±РёС‚РѕРіРѕ РґРІР° РЅРµР±РёС‚РёС…".
 
 [Arthur Pereverziev](https://www.facebook.com/apereverziev?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIzNDM1MDg5Mjk1OTEzNg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Мікрофінансова установа «знову за рибу гроші»
+РњС–РєСЂРѕС„С–РЅР°РЅСЃРѕРІР° СѓСЃС‚Р°РЅРѕРІР° В«Р·РЅРѕРІСѓ Р·Р° СЂРёР±Сѓ РіСЂРѕС€С–В»
 
 [Arthur Pereverziev](https://www.facebook.com/apereverziev?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMTgzNzIzMDU5NTQwNzE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Магазин господарських товарів «гівно і палки»
+РњР°РіР°Р·РёРЅ РіРѕСЃРїРѕРґР°СЂСЃСЊРєРёС… С‚РѕРІР°СЂС–РІ В«РіС–РІРЅРѕ С– РїР°Р»РєРёВ»
 
 [Christina Martsynkovska](https://www.facebook.com/christina.martsynkovska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNjA1MjI4NTE2MDcwNzY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Заклад для дошкільнят "Аби день до вечора"
+Р—Р°РєР»Р°Рґ РґР»СЏ РґРѕС€РєС–Р»СЊРЅСЏС‚ "РђР±Рё РґРµРЅСЊ РґРѕ РІРµС‡РѕСЂР°"
 
 [Laurentina Gold](https://www.facebook.com/laurentina.gold?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3OTU4NTUwNjg5NTIzNg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Барбершоп "Олені неголені"
+Р‘Р°СЂР±РµСЂС€РѕРї "РћР»РµРЅС– РЅРµРіРѕР»РµРЅС–"
 
 [Vladyslav Lutsevlv Lutsenko](https://www.facebook.com/loutsenko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE1NDkyOTUwMzI1MDk3MzE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Арія голодного з опери «Дай пожерти»
+РђСЂС–СЏ РіРѕР»РѕРґРЅРѕРіРѕ Р· РѕРїРµСЂРё В«Р”Р°Р№ РїРѕР¶РµСЂС‚РёВ»
 
 [Nataliia Klochanina](https://www.facebook.com/nklochanina?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg0NjMyNTQ3Njk0NTA5Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-ДНК-тест онлайн "Іван бабій кума в третіх"
+Р”РќРљ-С‚РµСЃС‚ РѕРЅР»Р°Р№РЅ "Р†РІР°РЅ Р±Р°Р±С–Р№ РєСѓРјР° РІ С‚СЂРµС‚С–С…"
 
 [Christina Martsynkovska](https://www.facebook.com/christina.martsynkovska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzgxODc0OTIxNjkyMTkxOA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Центр вакцинації "Клин клином"
+Р¦РµРЅС‚СЂ РІР°РєС†РёРЅР°С†С–С— "РљР»РёРЅ РєР»РёРЅРѕРј"
 
 [Christina Martsynkovska](https://www.facebook.com/christina.martsynkovska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0ODM3NjYyNzcwMzI4Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Барбершоп "Не такий страшний чорт"
+Р‘Р°СЂР±РµСЂС€РѕРї "РќРµ С‚Р°РєРёР№ СЃС‚СЂР°С€РЅРёР№ С‡РѕСЂС‚"
 
 [Svitlana Kropovens'ka](https://www.facebook.com/svitlana.kropovenska.7?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMxNTMxODE5OTE2NTQ1NTk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Центр з підготовки до ЗНО: "Просили мати, просили батько" або "Не наївсь, то не налижешся"))
+Р¦РµРЅС‚СЂ Р· РїС–РґРіРѕС‚РѕРІРєРё РґРѕ Р—РќРћ: "РџСЂРѕСЃРёР»Рё РјР°С‚Рё, РїСЂРѕСЃРёР»Рё Р±Р°С‚СЊРєРѕ" Р°Р±Рѕ "РќРµ РЅР°С—РІСЃСЊ, С‚Рѕ РЅРµ РЅР°Р»РёР¶РµС€СЃСЏ"))
 
 [Valeria Savenko](https://www.facebook.com/valeria.savenko.fb?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMwNTE4MjQzODkyOTg1NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Групові медитативні практики «мертві бджоли не гудуть»![?????>?](prisl1_files/image010.png)
+Р“СЂСѓРїРѕРІС– РјРµРґРёС‚Р°С‚РёРІРЅС– РїСЂР°РєС‚РёРєРё В«РјРµСЂС‚РІС– Р±РґР¶РѕР»Рё РЅРµ РіСѓРґСѓС‚СЊВ»![?????>?](prisl1_files/image010.png)
 
-[Тетяна Євтухова](https://www.facebook.com/profile.php?id=100001349494067&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY5ODczMjMwMjE2NDc4MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РўРµС‚СЏРЅР° Р„РІС‚СѓС…РѕРІР°](https://www.facebook.com/profile.php?id=100001349494067&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY5ODczMjMwMjE2NDc4MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ремонтно-малярна компанія "Срали-мазали-ліпили..."
+Р РµРјРѕРЅС‚РЅРѕ-РјР°Р»СЏСЂРЅР° РєРѕРјРїР°РЅС–СЏ "РЎСЂР°Р»Рё-РјР°Р·Р°Р»Рё-Р»С–РїРёР»Рё..."
 
-[Тетяна Євтухова](https://www.facebook.com/profile.php?id=100001349494067&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNzM0NzA1OTczNDYyMjM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РўРµС‚СЏРЅР° Р„РІС‚СѓС…РѕРІР°](https://www.facebook.com/profile.php?id=100001349494067&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNzM0NzA1OTczNDYyMjM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Туристичний шопінг "Одною сракою на два базари"
+РўСѓСЂРёСЃС‚РёС‡РЅРёР№ С€РѕРїС–РЅРі "РћРґРЅРѕСЋ СЃСЂР°РєРѕСЋ РЅР° РґРІР° Р±Р°Р·Р°СЂРё"
 
-[Світлана Шульга](https://www.facebook.com/svetlana.gs?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMTU3NTQ0MDk2MzEyNDU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РЎРІС–С‚Р»Р°РЅР° РЁСѓР»СЊРіР°](https://www.facebook.com/svetlana.gs?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMTU3NTQ0MDk2MzEyNDU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Весільне агентство "голова у вінку, а срака в милі"
+Р’РµСЃС–Р»СЊРЅРµ Р°РіРµРЅС‚СЃС‚РІРѕ "РіРѕР»РѕРІР° Сѓ РІС–РЅРєСѓ, Р° СЃСЂР°РєР° РІ РјРёР»С–"
 
-[Олександра Ревуцька](https://www.facebook.com/profile.php?id=1790144868&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMyMzc1MDY0NzAxMjg3Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»РµРєСЃР°РЅРґСЂР° Р РµРІСѓС†СЊРєР°](https://www.facebook.com/profile.php?id=1790144868&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMyMzc1MDY0NzAxMjg3Ng%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Школа ораторської майстерності "ляп як штанами об дорогу"
+РЁРєРѕР»Р° РѕСЂР°С‚РѕСЂСЃСЊРєРѕС— РјР°Р№СЃС‚РµСЂРЅРѕСЃС‚С– "Р»СЏРї СЏРє С€С‚Р°РЅР°РјРё РѕР± РґРѕСЂРѕРіСѓ"
 
-[Світлана Шульга](https://www.facebook.com/svetlana.gs?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0MTYxMDk2NTAyMDc2Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РЎРІС–С‚Р»Р°РЅР° РЁСѓР»СЊРіР°](https://www.facebook.com/svetlana.gs?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0MTYxMDk2NTAyMDc2Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Студія стилістів " як корові сідло"
+РЎС‚СѓРґС–СЏ СЃС‚РёР»С–СЃС‚С–РІ " СЏРє РєРѕСЂРѕРІС– СЃС–РґР»Рѕ"
 
 [Christina Martsynkovska](https://www.facebook.com/christina.martsynkovska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE0MDM2Mjc4NjAyNDk2NDg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Клініка лікування депресії "Можеш коли хочеш"
+РљР»С–РЅС–РєР° Р»С–РєСѓРІР°РЅРЅСЏ РґРµРїСЂРµСЃС–С— "РњРѕР¶РµС€ РєРѕР»Рё С…РѕС‡РµС€"
 
-[Віра Скібчик](https://www.facebook.com/profile.php?id=100008951492231&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzk4Mjg5MDc0NjExMTQ0MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р’С–СЂР° РЎРєС–Р±С‡РёРє](https://www.facebook.com/profile.php?id=100008951492231&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzk4Mjg5MDc0NjExMTQ0MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Кабінет сімейного психолога "Срала Варка на Захарка"
+РљР°Р±С–РЅРµС‚ СЃС–РјРµР№РЅРѕРіРѕ РїСЃРёС…РѕР»РѕРіР° "РЎСЂР°Р»Р° Р’Р°СЂРєР° РЅР° Р—Р°С…Р°СЂРєР°"
 
-[Світлана Шульга](https://www.facebook.com/svetlana.gs?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzk5NTE2NjQ2ODM4MzkzOQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РЎРІС–С‚Р»Р°РЅР° РЁСѓР»СЊРіР°](https://www.facebook.com/svetlana.gs?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzk5NTE2NjQ2ODM4MzkzOQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Політична партія " олені -олені не бриті і не голені"
+РџРѕР»С–С‚РёС‡РЅР° РїР°СЂС‚С–СЏ " РѕР»РµРЅС– -РѕР»РµРЅС– РЅРµ Р±СЂРёС‚С– С– РЅРµ РіРѕР»РµРЅС–"
 
-[Тетяна Гриценко](https://www.facebook.com/profile.php?id=100018076862123&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIyMTA3MDQ4MDc5NzEwNQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РўРµС‚СЏРЅР° Р“СЂРёС†РµРЅРєРѕ](https://www.facebook.com/profile.php?id=100018076862123&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIyMTA3MDQ4MDc5NzEwNQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Кредитне агенство "Не ср\*ка й просить".
+РљСЂРµРґРёС‚РЅРµ Р°РіРµРЅСЃС‚РІРѕ "РќРµ СЃСЂ\*РєР° Р№ РїСЂРѕСЃРёС‚СЊ".
 
-[Оликсандр Шульц](https://www.facebook.com/oleksandrschultz?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg2NzA2MTAxNzg4MDIwNg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»РёРєСЃР°РЅРґСЂ РЁСѓР»СЊС†](https://www.facebook.com/oleksandrschultz?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg2NzA2MTAxNzg4MDIwNg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-феміністична студія "Коса не клепана"
+С„РµРјС–РЅС–СЃС‚РёС‡РЅР° СЃС‚СѓРґС–СЏ "РљРѕСЃР° РЅРµ РєР»РµРїР°РЅР°"
 
 [Mariia M. Homola](https://www.facebook.com/mari.gomola?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNTI0MDc0MjU0NTY1ODM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Генеалогічна фірма "Мати Василева"
+Р“РµРЅРµР°Р»РѕРіС–С‡РЅР° С„С–СЂРјР° "РњР°С‚Рё Р’Р°СЃРёР»РµРІР°"
 
-[Олександр Пшенік](https://www.facebook.com/lovysokyru?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNTcwNzE1MzQ5NjEzOTg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»РµРєСЃР°РЅРґСЂ РџС€РµРЅС–Рє](https://www.facebook.com/lovysokyru?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNTcwNzE1MzQ5NjEzOTg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ресторан японської кухні Те Се
+Р РµСЃС‚РѕСЂР°РЅ СЏРїРѕРЅСЃСЊРєРѕС— РєСѓС…РЅС– РўРµ РЎРµ
 
 [Olga Olive](https://www.facebook.com/olga.olivek?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzYyNTgxMTQ5MzA5NTMzNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Лесбійський бар "Повна пазуха цицьок"
+Р›РµСЃР±С–Р№СЃСЊРєРёР№ Р±Р°СЂ "РџРѕРІРЅР° РїР°Р·СѓС…Р° С†РёС†СЊРѕРє"
 
 [Maryna Yatsunda](https://www.facebook.com/marynayatsunda.marynayatsunda?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0Nzc3NTE4NzY0Nzk3NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Шиномонтаж Як гівно на колі
+РЁРёРЅРѕРјРѕРЅС‚Р°Р¶ РЇРє РіС–РІРЅРѕ РЅР° РєРѕР»С–
 
 [Volodymyr Shulha](https://www.facebook.com/profile.php?id=1816305709&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzU1OTg4NDE5Mjk1MDUzMQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Колцентр «Шукай вітру в полі»
+РљРѕР»С†РµРЅС‚СЂ В«РЁСѓРєР°Р№ РІС–С‚СЂСѓ РІ РїРѕР»С–В»
 
-Клініка репродуктивної медицини «Яке коріння, таке й насіння»
+РљР»С–РЅС–РєР° СЂРµРїСЂРѕРґСѓРєС‚РёРІРЅРѕС— РјРµРґРёС†РёРЅРё В«РЇРєРµ РєРѕСЂС–РЅРЅСЏ, С‚Р°РєРµ Р№ РЅР°СЃС–РЅРЅСЏВ»
 
-Хостел «Хто як постелить, так і виспиться»
+РҐРѕСЃС‚РµР» В«РҐС‚Рѕ СЏРє РїРѕСЃС‚РµР»РёС‚СЊ, С‚Р°Рє С– РІРёСЃРїРёС‚СЊСЃСЏВ»
 
 [Krystyna Rivera](https://www.facebook.com/kristina.abramovskaya?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY3NzQ5NTgwNzY0MjYxOA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Офтальмологічний центр «бачили очі що купували»
+РћС„С‚Р°Р»СЊРјРѕР»РѕРіС–С‡РЅРёР№ С†РµРЅС‚СЂ В«Р±Р°С‡РёР»Рё РѕС‡С– С‰Рѕ РєСѓРїСѓРІР°Р»РёВ»
 
-[Іван Приходько](https://www.facebook.com/profile.php?id=100011150296252&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE2NzY5MTY1NTkzODUzNjc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р†РІР°РЅ РџСЂРёС…РѕРґСЊРєРѕ](https://www.facebook.com/profile.php?id=100011150296252&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE2NzY5MTY1NTkzODUzNjc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Креативна агенція "хай так!", Конкуренти "йой, най буде!"
+РљСЂРµР°С‚РёРІРЅР° Р°РіРµРЅС†С–СЏ "С…Р°Р№ С‚Р°Рє!", РљРѕРЅРєСѓСЂРµРЅС‚Рё "Р№РѕР№, РЅР°Р№ Р±СѓРґРµ!"
 
-Агенція нерухомості "хата з краю".
+РђРіРµРЅС†С–СЏ РЅРµСЂСѓС…РѕРјРѕСЃС‚С– "С…Р°С‚Р° Р· РєСЂР°СЋ".
 
-Турагенція "pyzніпіzда".
+РўСѓСЂР°РіРµРЅС†С–СЏ "pyzРЅС–РїС–zРґР°".
 
 [Nataliya Sheremet](https://www.facebook.com/sheremet.nataliia?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg2ODkxMjc4NDYyNjMyNA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон краси "А баба таки згадала![??](prisl1_files/image011.png)!" (як дівкою була)
+РЎР°Р»РѕРЅ РєСЂР°СЃРё "Рђ Р±Р°Р±Р° С‚Р°РєРё Р·РіР°РґР°Р»Р°![??](prisl1_files/image011.png)!" (СЏРє РґС–РІРєРѕСЋ Р±СѓР»Р°)
 
 [Maryna Yatsunda](https://www.facebook.com/marynayatsunda.marynayatsunda?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzk5OTA1NTU2Nzk5Mjc4OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Засіб від депресії Немасил
+Р—Р°СЃС–Р± РІС–Рґ РґРµРїСЂРµСЃС–С— РќРµРјР°СЃРёР»
 
-[Анателла-Наталія Гуменюк](https://www.facebook.com/profile.php?id=100001482642237&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIzODc3Mzk3NTUyMzI2NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђРЅР°С‚РµР»Р»Р°-РќР°С‚Р°Р»С–СЏ Р“СѓРјРµРЅСЋРє](https://www.facebook.com/profile.php?id=100001482642237&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIzODc3Mzk3NTUyMzI2NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Дієтолог-психотерапевт "шоб ти їв, шоб не п@здів"
+Р”С–С”С‚РѕР»РѕРі-РїСЃРёС…РѕС‚РµСЂР°РїРµРІС‚ "С€РѕР± С‚Рё С—РІ, С€РѕР± РЅРµ Рї@Р·РґС–РІ"
 
-[Анателла-Наталія Гуменюк](https://www.facebook.com/profile.php?id=100001482642237&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3NDU5MjUzNzM1Njk4NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђРЅР°С‚РµР»Р»Р°-РќР°С‚Р°Р»С–СЏ Р“СѓРјРµРЅСЋРє](https://www.facebook.com/profile.php?id=100001482642237&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3NDU5MjUzNzM1Njk4NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Магазин кухонного приладдя "з собачого хвоста сито"
+РњР°РіР°Р·РёРЅ РєСѓС…РѕРЅРЅРѕРіРѕ РїСЂРёР»Р°РґРґСЏ "Р· СЃРѕР±Р°С‡РѕРіРѕ С…РІРѕСЃС‚Р° СЃРёС‚Рѕ"
 
-[Анателла-Наталія Гуменюк](https://www.facebook.com/profile.php?id=100001482642237&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcyODUzNTY1MjQyMDEyNg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђРЅР°С‚РµР»Р»Р°-РќР°С‚Р°Р»С–СЏ Р“СѓРјРµРЅСЋРє](https://www.facebook.com/profile.php?id=100001482642237&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcyODUzNTY1MjQyMDEyNg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салони краси "ловка, як срака у вовка" і "гарна, як пів сраки з-за корча"
+РЎР°Р»РѕРЅРё РєСЂР°СЃРё "Р»РѕРІРєР°, СЏРє СЃСЂР°РєР° Сѓ РІРѕРІРєР°" С– "РіР°СЂРЅР°, СЏРє РїС–РІ СЃСЂР°РєРё Р·-Р·Р° РєРѕСЂС‡Р°"
 
 [Iren Moxa](https://www.facebook.com/iren.moxa?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzExNTg5MTg2MTE3MzgyOTU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон інтим послуг " їбу і плАчу"
+РЎР°Р»РѕРЅ С–РЅС‚РёРј РїРѕСЃР»СѓРі " С—Р±Сѓ С– РїР»РђС‡Сѓ"
 
-[Анателла-Наталія Гуменюк](https://www.facebook.com/profile.php?id=100001482642237&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg1Njk1ODUxMjU3Mzc3OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђРЅР°С‚РµР»Р»Р°-РќР°С‚Р°Р»С–СЏ Р“СѓРјРµРЅСЋРє](https://www.facebook.com/profile.php?id=100001482642237&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg1Njk1ODUxMjU3Mzc3OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Студія брейк-дансу "а шоб ти сказився"
+РЎС‚СѓРґС–СЏ Р±СЂРµР№Рє-РґР°РЅСЃСѓ "Р° С€РѕР± С‚Рё СЃРєР°Р·РёРІСЃСЏ"
 
-[Анателла-Наталія Гуменюк](https://www.facebook.com/profile.php?id=100001482642237&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE4OTEzNDQ3MDg5MTA4Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђРЅР°С‚РµР»Р»Р°-РќР°С‚Р°Р»С–СЏ Р“СѓРјРµРЅСЋРє](https://www.facebook.com/profile.php?id=100001482642237&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE4OTEzNDQ3MDg5MTA4Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Школа марафонців "куди, бл@дь, по копаному!"
+РЁРєРѕР»Р° РјР°СЂР°С„РѕРЅС†С–РІ "РєСѓРґРё, Р±Р»@РґСЊ, РїРѕ РєРѕРїР°РЅРѕРјСѓ!"
 
-[Анателла-Наталія Гуменюк](https://www.facebook.com/profile.php?id=100001482642237&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM1ODM0MDE5MzIxMTg0Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђРЅР°С‚РµР»Р»Р°-РќР°С‚Р°Р»С–СЏ Р“СѓРјРµРЅСЋРє](https://www.facebook.com/profile.php?id=100001482642237&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM1ODM0MDE5MzIxMTg0Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Хоча це і школа снайперів може буть ![??](prisl1_files/image012.png) 
+РҐРѕС‡Р° С†Рµ С– С€РєРѕР»Р° СЃРЅР°Р№РїРµСЂС–РІ РјРѕР¶Рµ Р±СѓС‚СЊ ![??](prisl1_files/image012.png) 
 
-[Марія Дмитрієва](https://www.facebook.com/maria.dmytriyeva?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcxNTY4OTUzMzczODM4Mw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂС–СЏ Р”РјРёС‚СЂС–С”РІР°](https://www.facebook.com/maria.dmytriyeva?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcxNTY4OTUzMzczODM4Mw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Анателла-Наталія Гуменюк](https://www.facebook.com/profile.php?id=100001482642237&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) то буде "Куди по помитому!"
+[РђРЅР°С‚РµР»Р»Р°-РќР°С‚Р°Р»С–СЏ Р“СѓРјРµРЅСЋРє](https://www.facebook.com/profile.php?id=100001482642237&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) С‚Рѕ Р±СѓРґРµ "РљСѓРґРё РїРѕ РїРѕРјРёС‚РѕРјСѓ!"
 
-[Анателла-Наталія Гуменюк](https://www.facebook.com/profile.php?id=100001482642237&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIzOTE2OTk2ODQzNDc4ODY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђРЅР°С‚РµР»Р»Р°-РќР°С‚Р°Р»С–СЏ Р“СѓРјРµРЅСЋРє](https://www.facebook.com/profile.php?id=100001482642237&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIzOTE2OTk2ODQzNDc4ODY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Клуб анонімних алкоголіків "ні собі, ні людям"
+РљР»СѓР± Р°РЅРѕРЅС–РјРЅРёС… Р°Р»РєРѕРіРѕР»С–РєС–РІ "РЅС– СЃРѕР±С–, РЅС– Р»СЋРґСЏРј"
 
 [Inna Nesmiyan](https://www.facebook.com/inna.nesmiyan?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg0OTgxMTM2MDQ3ODE1Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Магаз інструментів " Срака-мотика & бісова ковінька"
+РњР°РіР°Р· С–РЅСЃС‚СЂСѓРјРµРЅС‚С–РІ " РЎСЂР°РєР°-РјРѕС‚РёРєР° & Р±С–СЃРѕРІР° РєРѕРІС–РЅСЊРєР°"
 
-[Елена Коваленко](https://www.facebook.com/profile.php?id=100013329301399&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNjIxOTYzOTExMzc3ODk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р•Р»РµРЅР° РљРѕРІР°Р»РµРЅРєРѕ](https://www.facebook.com/profile.php?id=100013329301399&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNjIxOTYzOTExMzc3ODk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Служба відеонагляду "Півсраки з-за корча" або "Як сорока в маслак"
+РЎР»СѓР¶Р±Р° РІС–РґРµРѕРЅР°РіР»СЏРґСѓ "РџС–РІСЃСЂР°РєРё Р·-Р·Р° РєРѕСЂС‡Р°" Р°Р±Рѕ "РЇРє СЃРѕСЂРѕРєР° РІ РјР°СЃР»Р°Рє"
 
-Служба мір та ваг "Як віл по дорозі посцяв"
+РЎР»СѓР¶Р±Р° РјС–СЂ С‚Р° РІР°Рі "РЇРє РІС–Р» РїРѕ РґРѕСЂРѕР·С– РїРѕСЃС†СЏРІ"
 
 [Inna Nesmiyan](https://www.facebook.com/inna.nesmiyan?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwMDQwMzY3NTQ4MTE1OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон різних послуг "Язиката Хвеська"
+РЎР°Р»РѕРЅ СЂС–Р·РЅРёС… РїРѕСЃР»СѓРі "РЇР·РёРєР°С‚Р° РҐРІРµСЃСЊРєР°"
 
-[Svyatoslav Chumak](https://www.facebook.com/profile.php?id=100004291187718&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3MjE3NzU2NzYzOTQyMQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)  ·
+[Svyatoslav Chumak](https://www.facebook.com/profile.php?id=100004291187718&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3MjE3NzU2NzYzOTQyMQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)В  В·
 
-Пенсійний фонд - "баба з возу - кобилі легше"
+РџРµРЅСЃС–Р№РЅРёР№ С„РѕРЅРґ - "Р±Р°Р±Р° Р· РІРѕР·Сѓ - РєРѕР±РёР»С– Р»РµРіС€Рµ"
 
-[Дана Кузмяк](https://www.facebook.com/erika.fletcher.9047?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE4MzI3NDU0ODE1MTA0MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р”Р°РЅР° РљСѓР·РјСЏРє](https://www.facebook.com/erika.fletcher.9047?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE4MzI3NDU0ODE1MTA0MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-ЖК "Моя хата скраю"
+Р–Рљ "РњРѕСЏ С…Р°С‚Р° СЃРєСЂР°СЋ"
 
 [Alina Semenova](https://www.facebook.com/alina.semenova.75?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE1NzIzMzMyNTM1MDcxMTk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Адвокатьске бюро «Підманула, підвела»
+РђРґРІРѕРєР°С‚СЊСЃРєРµ Р±СЋСЂРѕ В«РџС–РґРјР°РЅСѓР»Р°, РїС–РґРІРµР»Р°В»
 
 [Nataliya Sheremet](https://www.facebook.com/sheremet.nataliia?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY0NTQ1MzQwNDEwOTk2MQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Турагентство "Сім п'ятниць"
+РўСѓСЂР°РіРµРЅС‚СЃС‚РІРѕ "РЎС–Рј Рї'СЏС‚РЅРёС†СЊ"
 
-[Елена Коваленко](https://www.facebook.com/profile.php?id=100013329301399&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzNDM1NDY3NjYyNTM3NTk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р•Р»РµРЅР° РљРѕРІР°Р»РµРЅРєРѕ](https://www.facebook.com/profile.php?id=100013329301399&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzNDM1NDY3NjYyNTM3NTk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Мікрокредитна агенція "Брат братом, сват сватом, а гроші не рідня"
+РњС–РєСЂРѕРєСЂРµРґРёС‚РЅР° Р°РіРµРЅС†С–СЏ "Р‘СЂР°С‚ Р±СЂР°С‚РѕРј, СЃРІР°С‚ СЃРІР°С‚РѕРј, Р° РіСЂРѕС€С– РЅРµ СЂС–РґРЅСЏ"
 
-[Елена Коваленко](https://www.facebook.com/profile.php?id=100013329301399&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI3OTE0Mzg1MTc0NTU3OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р•Р»РµРЅР° РљРѕРІР°Р»РµРЅРєРѕ](https://www.facebook.com/profile.php?id=100013329301399&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI3OTE0Mzg1MTc0NTU3OQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Студія візажу "їб&ть мої карі очі"
+РЎС‚СѓРґС–СЏ РІС–Р·Р°Р¶Сѓ "С—Р±&С‚СЊ РјРѕС— РєР°СЂС– РѕС‡С–"
 
 [Olena Tkachenko](https://www.facebook.com/elena.tkachenko11?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMDc4MzgzOTA0NDE1NDU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Салон пірсингу "Тіпун тобі на язик"
+РЎР°Р»РѕРЅ РїС–СЂСЃРёРЅРіСѓ "РўС–РїСѓРЅ С‚РѕР±С– РЅР° СЏР·РёРє"
 
-[Алла Рассказова](https://www.facebook.com/profile.php?id=100008174028334&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwMTEwMDA0NTIzNTczOQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђР»Р»Р° Р Р°СЃСЃРєР°Р·РѕРІР°](https://www.facebook.com/profile.php?id=100008174028334&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcwMTEwMDA0NTIzNTczOQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Будівельна організація " Срала, мазала...глини не хватило"
+Р‘СѓРґС–РІРµР»СЊРЅР° РѕСЂРіР°РЅС–Р·Р°С†С–СЏ " РЎСЂР°Р»Р°, РјР°Р·Р°Р»Р°...РіР»РёРЅРё РЅРµ С…РІР°С‚РёР»Рѕ"
 
 [Liudmyla Rogova](https://www.facebook.com/ludmila.rogowa?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4ODI1NjM4NzQ5OTEwNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Тренінг снайперів:"піти по помитому"
+РўСЂРµРЅС–РЅРі СЃРЅР°Р№РїРµСЂС–РІ:"РїС–С‚Рё РїРѕ РїРѕРјРёС‚РѕРјСѓ"
 
 [Anna Bon](https://www.facebook.com/anna.bondar.716?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0NTc3MjE2NDY3ODY2Mw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Пологовий будинок «Ще теля в сраці, а баба довбнею маха!»
+РџРѕР»РѕРіРѕРІРёР№ Р±СѓРґРёРЅРѕРє В«Р©Рµ С‚РµР»СЏ РІ СЃСЂР°С†С–, Р° Р±Р°Р±Р° РґРѕРІР±РЅРµСЋ РјР°С…Р°!В»
 
 [Anna Bon](https://www.facebook.com/anna.bondar.716?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEzNzM0NTAyNDM1ODEwNjA%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Сайт знайомств «Чом ти не прийшов»
+РЎР°Р№С‚ Р·РЅР°Р№РѕРјСЃС‚РІ В«Р§РѕРј С‚Рё РЅРµ РїСЂРёР№С€РѕРІВ»
 
-[Олена Ілюшина](https://www.facebook.com/iliushinaolena?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4NDg0MTE2NDM3NjA4MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»РµРЅР° Р†Р»СЋС€РёРЅР°](https://www.facebook.com/iliushinaolena?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4NDg0MTE2NDM3NjA4MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Пекарня "У нашої Христі". Фірмова випічка "ворота в тісті"
+РџРµРєР°СЂРЅСЏ "РЈ РЅР°С€РѕС— РҐСЂРёСЃС‚С–". Р¤С–СЂРјРѕРІР° РІРёРїС–С‡РєР° "РІРѕСЂРѕС‚Р° РІ С‚С–СЃС‚С–"
 
 [Maksym Pidkopai](https://www.facebook.com/pidkopai?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE0OTk2NTYxMTcyNDgzNDY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Гінекологічну клініку "Карі очі" вже пропонували?
+Р“С–РЅРµРєРѕР»РѕРіС–С‡РЅСѓ РєР»С–РЅС–РєСѓ "РљР°СЂС– РѕС‡С–" РІР¶Рµ РїСЂРѕРїРѕРЅСѓРІР°Р»Рё?
 
 [Yulia Sosnitskaya](https://www.facebook.com/profile.php?id=100007371125017&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNDE1NzgwODM5NTk3MjM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Julia Egorova](https://www.facebook.com/julia.egorova.589?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) Проктолог то: в сраку носом, товкти просо )))))
+[Julia Egorova](https://www.facebook.com/julia.egorova.589?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РџСЂРѕРєС‚РѕР»РѕРі С‚Рѕ: РІ СЃСЂР°РєСѓ РЅРѕСЃРѕРј, С‚РѕРІРєС‚Рё РїСЂРѕСЃРѕ )))))
 
 [Vasyl Meleshyn](https://www.facebook.com/vasyl.meleshyn?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNzE3OTQxNTc1MjEzODQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-і сексшоп "Вийди і зайди нормально")
+С– СЃРµРєСЃС€РѕРї "Р’РёР№РґРё С– Р·Р°Р№РґРё РЅРѕСЂРјР°Р»СЊРЅРѕ")
 
 [Anna Bon](https://www.facebook.com/anna.bondar.716?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM0MzgyMjUzNDcyNjY2OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-СТО «П?яте колесо до воза»
+РЎРўРћ В«Рџ?СЏС‚Рµ РєРѕР»РµСЃРѕ РґРѕ РІРѕР·Р°В»
 
 [Anna Bon](https://www.facebook.com/anna.bondar.716?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY2NjE0ODc4NzA2MDE3NDc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Психіатрична клініка «А голову свою ти не забув?»
+РџСЃРёС…С–Р°С‚СЂРёС‡РЅР° РєР»С–РЅС–РєР° В«Рђ РіРѕР»РѕРІСѓ СЃРІРѕСЋ С‚Рё РЅРµ Р·Р°Р±СѓРІ?В»
 
 [Anna Bon](https://www.facebook.com/anna.bondar.716?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg0ODQ1MDY0NjY1ODY2MA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Вуличні туалети «Пісяй, пісяй, моя мурмулєточка»
+Р’СѓР»РёС‡РЅС– С‚СѓР°Р»РµС‚Рё В«РџС–СЃСЏР№, РїС–СЃСЏР№, РјРѕСЏ РјСѓСЂРјСѓР»С”С‚РѕС‡РєР°В»
 
-[Марія Дмитрієва](https://www.facebook.com/maria.dmytriyeva?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE4NDk5MDc1MjU0NTUzMDE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњР°СЂС–СЏ Р”РјРёС‚СЂС–С”РІР°](https://www.facebook.com/maria.dmytriyeva?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE4NDk5MDc1MjU0NTUzMDE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-PR компанія "Сіркові очі"
+PR РєРѕРјРїР°РЅС–СЏ "РЎС–СЂРєРѕРІС– РѕС‡С–"
 
-[Ірина Асанова](https://www.facebook.com/profile.php?id=100025140192764&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg5NDU1MzQ4ODg3ODY3OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р†СЂРёРЅР° РђСЃР°РЅРѕРІР°](https://www.facebook.com/profile.php?id=100025140192764&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg5NDU1MzQ4ODg3ODY3OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Комеді-клуб "Смішно коняці шо срака в пиляці"
+РљРѕРјРµРґС–-РєР»СѓР± "РЎРјС–С€РЅРѕ РєРѕРЅСЏС†С– С€Рѕ СЃСЂР°РєР° РІ РїРёР»СЏС†С–"
 
-[Сандрин Адренохром](https://www.facebook.com/profile.php?id=100009641407010&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY0NzI5MDYxNDA1OTQ3Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РЎР°РЅРґСЂРёРЅ РђРґСЂРµРЅРѕС…СЂРѕРј](https://www.facebook.com/profile.php?id=100009641407010&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY0NzI5MDYxNDA1OTQ3Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Сервіс послуг по дому "Мастера - один сере, другий розтира"
+РЎРµСЂРІС–СЃ РїРѕСЃР»СѓРі РїРѕ РґРѕРјСѓ "РњР°СЃС‚РµСЂР° - РѕРґРёРЅ СЃРµСЂРµ, РґСЂСѓРіРёР№ СЂРѕР·С‚РёСЂР°"
 
 [Iryna Oliinyk](https://www.facebook.com/profile.php?id=100005249554651&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2OTUxMTYwMTc0Mzc0OTc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Кофішоп «Од Києва до Лубен»![??](prisl1_files/image013.png) (насіяла конопель)
+РљРѕС„С–С€РѕРї В«РћРґ РљРёС”РІР° РґРѕ Р›СѓР±РµРЅВ»![??](prisl1_files/image013.png) (РЅР°СЃС–СЏР»Р° РєРѕРЅРѕРїРµР»СЊ)
 
 [Valeri Parchik](https://www.facebook.com/profile.php?id=1162149850&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI4MTA3NzgzNDc1NjMzNA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-офтальмологiя-"тиць пиzдиць тай розвиднiлось"
+РѕС„С‚Р°Р»СЊРјРѕР»РѕРіiСЏ-"С‚РёС†СЊ РїРёzРґРёС†СЊ С‚Р°Р№ СЂРѕР·РІРёРґРЅiР»РѕСЃСЊ"
 
-[Ірина Асанова](https://www.facebook.com/profile.php?id=100025140192764&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNDU5MTE0NTk0MDQ5Njg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р†СЂРёРЅР° РђСЃР°РЅРѕРІР°](https://www.facebook.com/profile.php?id=100025140192764&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyNDU5MTE0NTk0MDQ5Njg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Офтальмологічна клініка "На твої очі - яйця сорочі"
+РћС„С‚Р°Р»СЊРјРѕР»РѕРіС–С‡РЅР° РєР»С–РЅС–РєР° "РќР° С‚РІРѕС— РѕС‡С– - СЏР№С†СЏ СЃРѕСЂРѕС‡С–"
 
 [Tanya Negoda](https://www.facebook.com/tanya.negoda?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE2OTU5MDcyOTQyNDc4NTU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-А куди б приткнуть "сюдою-тудою та й господь з тобою?" В принципі, до любого сервіса
+Рђ РєСѓРґРё Р± РїСЂРёС‚РєРЅСѓС‚СЊ "СЃСЋРґРѕСЋ-С‚СѓРґРѕСЋ С‚Р° Р№ РіРѕСЃРїРѕРґСЊ Р· С‚РѕР±РѕСЋ?" Р’ РїСЂРёРЅС†РёРїС–, РґРѕ Р»СЋР±РѕРіРѕ СЃРµСЂРІС–СЃР°
 
 [Svitlana Holomonova](https://www.facebook.com/svitlana.holomonova?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI0MDQ4NjE3NTM0MTU4Mg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Секонд хенд "На тобі небоже що мені негоже "
+РЎРµРєРѕРЅРґ С…РµРЅРґ "РќР° С‚РѕР±С– РЅРµР±РѕР¶Рµ С‰Рѕ РјРµРЅС– РЅРµРіРѕР¶Рµ "
 
 [Iryna Rozovyk](https://www.facebook.com/iryna.rozovyk.5?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIyNjE0MzMzMDI0MDY5NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Турагенція «Як за море срати»
+РўСѓСЂР°РіРµРЅС†С–СЏ В«РЇРє Р·Р° РјРѕСЂРµ СЃСЂР°С‚РёВ»
 
 [Iryna Rozovyk](https://www.facebook.com/iryna.rozovyk.5?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE0NDc5MzkyMDkzMjEwNzk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Курси відповідального батьківства «Мати каже чи віл пердить»
+РљСѓСЂСЃРё РІС–РґРїРѕРІС–РґР°Р»СЊРЅРѕРіРѕ Р±Р°С‚СЊРєС–РІСЃС‚РІР° В«РњР°С‚Рё РєР°Р¶Рµ С‡Рё РІС–Р» РїРµСЂРґРёС‚СЊВ»
 
-[Елена Коваленко](https://www.facebook.com/profile.php?id=100013329301399&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE0OTMzNzUxMzgwNjI2MDE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р•Р»РµРЅР° РљРѕРІР°Р»РµРЅРєРѕ](https://www.facebook.com/profile.php?id=100013329301399&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE0OTMzNzUxMzgwNjI2MDE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Адвокатська контора "Позичені в Сірка очі"
+РђРґРІРѕРєР°С‚СЃСЊРєР° РєРѕРЅС‚РѕСЂР° "РџРѕР·РёС‡РµРЅС– РІ РЎС–СЂРєР° РѕС‡С–"
 
 [Ludmyla Fedoruk](https://www.facebook.com/profile.php?id=100006274631387&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMxMzYxNzk4NDYxNjYwMw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Агенція домашнього персоналу: " Прали, срали, мазали, пекли і в піч лазили"
+РђРіРµРЅС†С–СЏ РґРѕРјР°С€РЅСЊРѕРіРѕ РїРµСЂСЃРѕРЅР°Р»Сѓ: " РџСЂР°Р»Рё, СЃСЂР°Р»Рё, РјР°Р·Р°Р»Рё, РїРµРєР»Рё С– РІ РїС–С‡ Р»Р°Р·РёР»Рё"
 
 [Inna Nesmiyan](https://www.facebook.com/inna.nesmiyan?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3NTg0OTMwMDU1NDk2Mw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Сучасна школа дипломатів"Говорили, балакали, сіли та й заплакали".
+РЎСѓС‡Р°СЃРЅР° С€РєРѕР»Р° РґРёРїР»РѕРјР°С‚С–РІ"Р“РѕРІРѕСЂРёР»Рё, Р±Р°Р»Р°РєР°Р»Рё, СЃС–Р»Рё С‚Р° Р№ Р·Р°РїР»Р°РєР°Р»Рё".
 
-[Олеся Бабич](https://www.facebook.com/profile.php?id=100022899080458&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMjE2MDIyNjU2OTY5NTY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РћР»РµСЃСЏ Р‘Р°Р±РёС‡](https://www.facebook.com/profile.php?id=100022899080458&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMjE2MDIyNjU2OTY5NTY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-[Ярослава Дзира](https://www.facebook.com/yadzyra?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) креслення -"як бик сцяв"
+[РЇСЂРѕСЃР»Р°РІР° Р”Р·РёСЂР°](https://www.facebook.com/yadzyra?__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R) РєСЂРµСЃР»РµРЅРЅСЏ -"СЏРє Р±РёРє СЃС†СЏРІ"
 
-Мови-"чья б корова мичала, а твоя б мовчала!"
+РњРѕРІРё-"С‡СЊСЏ Р± РєРѕСЂРѕРІР° РјРёС‡Р°Р»Р°, Р° С‚РІРѕСЏ Р± РјРѕРІС‡Р°Р»Р°!"
 
 [Iryna Rozovyk](https://www.facebook.com/iryna.rozovyk.5?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2OTQzNjk5MjA4NDIxNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Навігатор «Хто ходить навпростець, той вдома не ночує»
+РќР°РІС–РіР°С‚РѕСЂ В«РҐС‚Рѕ С…РѕРґРёС‚СЊ РЅР°РІРїСЂРѕСЃС‚РµС†СЊ, С‚РѕР№ РІРґРѕРјР° РЅРµ РЅРѕС‡СѓС”В»
 
 [Oxana Markieieva](https://www.facebook.com/profile.php?id=100004093038292&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIyMTk1Njg1MDcxNjQ2OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Бар «Під мухою». Кафе «Холодні ніжки» (поминки, свайби)
+Р‘Р°СЂ В«РџС–Рґ РјСѓС…РѕСЋВ». РљР°С„Рµ В«РҐРѕР»РѕРґРЅС– РЅС–Р¶РєРёВ» (РїРѕРјРёРЅРєРё, СЃРІР°Р№Р±Рё)
 
 [Nataliya Korsun](https://www.facebook.com/natali.korsun.1?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIwMjgyODczOTQ5NzAwNQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Солярій: Поки сонце зійде, роса очі виїсть.
+РЎРѕР»СЏСЂС–Р№: РџРѕРєРё СЃРѕРЅС†Рµ Р·С–Р№РґРµ, СЂРѕСЃР° РѕС‡С– РІРёС—СЃС‚СЊ.
 
 [Olena Syniavska](https://www.facebook.com/o.syniavska?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEyMzgxMzE3NzQyNDU2MDc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Курси правильного харчування "і сам не гам, і другому не дам"
+РљСѓСЂСЃРё РїСЂР°РІРёР»СЊРЅРѕРіРѕ С…Р°СЂС‡СѓРІР°РЅРЅСЏ "С– СЃР°Рј РЅРµ РіР°Рј, С– РґСЂСѓРіРѕРјСѓ РЅРµ РґР°Рј"
 
-[Тетяна Давиденко](https://www.facebook.com/tasiadavydenko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI5NzA4MzU5NjYwMTYwNA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РўРµС‚СЏРЅР° Р”Р°РІРёРґРµРЅРєРѕ](https://www.facebook.com/tasiadavydenko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI5NzA4MzU5NjYwMTYwNA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ресторан "Вари срака борщ, а я на весілля пішла"
+Р РµСЃС‚РѕСЂР°РЅ "Р’Р°СЂРё СЃСЂР°РєР° Р±РѕСЂС‰, Р° СЏ РЅР° РІРµСЃС–Р»Р»СЏ РїС–С€Р»Р°"
 
 [Natali KaraDeniz](https://www.facebook.com/natali.romanenko.9?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE1MTY4NDEwMjI0MjI0Mjc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Лазня "Поперед батька в пекло"
+Р›Р°Р·РЅСЏ "РџРѕРїРµСЂРµРґ Р±Р°С‚СЊРєР° РІ РїРµРєР»Рѕ"
 
 [Iryna Rozovyk](https://www.facebook.com/iryna.rozovyk.5?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY1NjU2MzMyMTM1NTYwODQ%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ремонтна майстерня «Плюнем, дунем і заклеїм скотчем»
+Р РµРјРѕРЅС‚РЅР° РјР°Р№СЃС‚РµСЂРЅСЏ В«РџР»СЋРЅРµРј, РґСѓРЅРµРј С– Р·Р°РєР»РµС—Рј СЃРєРѕС‚С‡РµРјВ»
 
-[Наталья Мельничук](https://www.facebook.com/profile.php?id=100009755581170&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM1MDg1MzI5NTI3NDU5MDg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РќР°С‚Р°Р»СЊСЏ РњРµР»СЊРЅРёС‡СѓРє](https://www.facebook.com/profile.php?id=100009755581170&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM1MDg1MzI5NTI3NDU5MDg%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Бюро добрих послуг: "хай буде всякому, - по чортзна якому".
+Р‘СЋСЂРѕ РґРѕР±СЂРёС… РїРѕСЃР»СѓРі: "С…Р°Р№ Р±СѓРґРµ РІСЃСЏРєРѕРјСѓ, - РїРѕ С‡РѕСЂС‚Р·РЅР° СЏРєРѕРјСѓ".
 
 [Natali KaraDeniz](https://www.facebook.com/natali.romanenko.9?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMTc4MzcyNDYwMjk1NDc%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Консалтинг груп "Що робити? Плювати тай ловити"
+РљРѕРЅСЃР°Р»С‚РёРЅРі РіСЂСѓРї "Р©Рѕ СЂРѕР±РёС‚Рё? РџР»СЋРІР°С‚Рё С‚Р°Р№ Р»РѕРІРёС‚Рё"
 
 [Natalia Tymoshyk](https://www.facebook.com/natalia.tymoshyk?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzQyNTI3MTkwMDE2MTkyNDI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ательє одягу та взуття «Гола, боса і в вінку».
+РђС‚РµР»СЊС” РѕРґСЏРіСѓ С‚Р° РІР·СѓС‚С‚СЏ В«Р“РѕР»Р°, Р±РѕСЃР° С– РІ РІС–РЅРєСѓВ».
 
 [Oksana Dudarko](https://www.facebook.com/oksana.dudarko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzcyMzQ5ODUzOTU5MTE1Mw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Кур'єрська доставка: ''поспішиш- людей насмішиш''.
+РљСѓСЂ'С”СЂСЃСЊРєР° РґРѕСЃС‚Р°РІРєР°: ''РїРѕСЃРїС–С€РёС€- Р»СЋРґРµР№ РЅР°СЃРјС–С€РёС€''.
 
-[Ірина Светлічна](https://www.facebook.com/profile.php?id=100000611772075&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg4NDg5MzU3NjMyNzgwNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р†СЂРёРЅР° РЎРІРµС‚Р»С–С‡РЅР°](https://www.facebook.com/profile.php?id=100000611772075&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg4NDg5MzU3NjMyNzgwNw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Дизайн- ательє "Чорт зна що і збоку бантик"
+Р”РёР·Р°Р№РЅ- Р°С‚РµР»СЊС” "Р§РѕСЂС‚ Р·РЅР° С‰Рѕ С– Р·Р±РѕРєСѓ Р±Р°РЅС‚РёРє"
 
 [Oksana Dudarko](https://www.facebook.com/oksana.dudarko?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzk5MTYyNjM2ODYxODAwOA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Курси кунілінгусу ''язик до Києва доведе''
+РљСѓСЂСЃРё РєСѓРЅС–Р»С–РЅРіСѓСЃСѓ ''СЏР·РёРє РґРѕ РљРёС”РІР° РґРѕРІРµРґРµ''
 
 [Natalia Tymoshyk](https://www.facebook.com/natalia.tymoshyk?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY4Mjk3NDc4MTM3Mzk0Mzk%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Авіалінії «Срав, пердів, з гори летів»
+РђРІС–Р°Р»С–РЅС–С— В«РЎСЂР°РІ, РїРµСЂРґС–РІ, Р· РіРѕСЂРё Р»РµС‚С–РІВ»
 
 [Bilanych Mychail](https://www.facebook.com/responsibility.creation?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI2OTg3NDg4OTM3OTk2OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Завод стрілецької зброї: "Раз в сто років і мотика стріляє"?
+Р—Р°РІРѕРґ СЃС‚СЂС–Р»РµС†СЊРєРѕС— Р·Р±СЂРѕС—: "Р Р°Р· РІ СЃС‚Рѕ СЂРѕРєС–РІ С– РјРѕС‚РёРєР° СЃС‚СЂС–Р»СЏС”"?
 
 [Oksana Savchyn](https://www.facebook.com/oksana.savchyn.1?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzU3OTMzMTg3MDk0NTE4OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Виробництво/продаж витяжок і вентиляційних систем "Півень над кручею" (загадка про отвір для додаткової тяги, що знаходився попід стелею: "Стоїть півень над кручею, заткнув сраку онучею").
+Р’РёСЂРѕР±РЅРёС†С‚РІРѕ/РїСЂРѕРґР°Р¶ РІРёС‚СЏР¶РѕРє С– РІРµРЅС‚РёР»СЏС†С–Р№РЅРёС… СЃРёСЃС‚РµРј "РџС–РІРµРЅСЊ РЅР°Рґ РєСЂСѓС‡РµСЋ" (Р·Р°РіР°РґРєР° РїСЂРѕ РѕС‚РІС–СЂ РґР»СЏ РґРѕРґР°С‚РєРѕРІРѕС— С‚СЏРіРё, С‰Рѕ Р·РЅР°С…РѕРґРёРІСЃСЏ РїРѕРїС–Рґ СЃС‚РµР»РµСЋ: "РЎС‚РѕС—С‚СЊ РїС–РІРµРЅСЊ РЅР°Рґ РєСЂСѓС‡РµСЋ, Р·Р°С‚РєРЅСѓРІ СЃСЂР°РєСѓ РѕРЅСѓС‡РµСЋ").
 
 [Kateryna Svyryda](https://www.facebook.com/kateryna.svyryda?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE1MDMwOTkyODA0OTI0NDI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Репродуктивна клініка "А у нашого Омелька невелика сімейка"
+Р РµРїСЂРѕРґСѓРєС‚РёРІРЅР° РєР»С–РЅС–РєР° "Рђ Сѓ РЅР°С€РѕРіРѕ РћРјРµР»СЊРєР° РЅРµРІРµР»РёРєР° СЃС–РјРµР№РєР°"
 
 [Mariya Shub](https://www.facebook.com/mariya.shub?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzE4OTIwNTkzOTQ5MDI1MjY%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Пошуковий сервіс " промовка про вовка"
+РџРѕС€СѓРєРѕРІРёР№ СЃРµСЂРІС–СЃ " РїСЂРѕРјРѕРІРєР° РїСЂРѕ РІРѕРІРєР°"
 
 [Natali KaraDeniz](https://www.facebook.com/natali.romanenko.9?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIyNDc2OTE0MzIxMDcwMzU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Кава в зернах "Цап меле"
+РљР°РІР° РІ Р·РµСЂРЅР°С… "Р¦Р°Рї РјРµР»Рµ"
 
 [Anna Wargun](https://www.facebook.com/annawargun?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzMyNzg4Njk3MTg5MjUzMjM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Курси ораторської майстерності "Як в муку перднув"
+РљСѓСЂСЃРё РѕСЂР°С‚РѕСЂСЃСЊРєРѕС— РјР°Р№СЃС‚РµСЂРЅРѕСЃС‚С– "РЇРє РІ РјСѓРєСѓ РїРµСЂРґРЅСѓРІ"
 
 [Anna Wargun](https://www.facebook.com/annawargun?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwOTk1NTk1MjEwMjY5ODU%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Сантехнічні роботи "В сраці був - гімно видів"
+РЎР°РЅС‚РµС…РЅС–С‡РЅС– СЂРѕР±РѕС‚Рё "Р’ СЃСЂР°С†С– Р±СѓРІ - РіС–РјРЅРѕ РІРёРґС–РІ"
 
 [Natali KaraDeniz](https://www.facebook.com/natali.romanenko.9?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI3MDA3NjA5MjM0MTk2NTI%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Постільна білизна "спав аж заслинився"
+РџРѕСЃС‚С–Р»СЊРЅР° Р±С–Р»РёР·РЅР° "СЃРїР°РІ Р°Р¶ Р·Р°СЃР»РёРЅРёРІСЃСЏ"
 
 [Natalia Tymoshyk](https://www.facebook.com/natalia.tymoshyk?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIxNDQ0ODU3ODkyMTYyNzM%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Агенція стилю «Як чорт по ягоди»
+РђРіРµРЅС†С–СЏ СЃС‚РёР»СЋ В«РЇРє С‡РѕСЂС‚ РїРѕ СЏРіРѕРґРёВ»
 
 [Kateryna Svyryda](https://www.facebook.com/kateryna.svyryda?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM3NDE4ODMxNDkzOTE3NQ%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ортопедичний салон "Йосип босий"
+РћСЂС‚РѕРїРµРґРёС‡РЅРёР№ СЃР°Р»РѕРЅ "Р™РѕСЃРёРї Р±РѕСЃРёР№"
 
 [Nataliya Zubar](https://www.facebook.com/nelliza111?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM2MTg2OTAxMjg0MDg5Nw%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Атракціон для дорослих "Стрибки в гречку"
+РђС‚СЂР°РєС†С–РѕРЅ РґР»СЏ РґРѕСЂРѕСЃР»РёС… "РЎС‚СЂРёР±РєРё РІ РіСЂРµС‡РєСѓ"
 
 [Olha Zvonok](https://www.facebook.com/helga.dv?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwMzUxNjY0NTQ0MzM1MTE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Курси тайм-менеджменту "як в сраку вжалений"
+РљСѓСЂСЃРё С‚Р°Р№Рј-РјРµРЅРµРґР¶РјРµРЅС‚Сѓ "СЏРє РІ СЃСЂР°РєСѓ РІР¶Р°Р»РµРЅРёР№"
 
-[Віталій Сорочан](https://www.facebook.com/vit.sorochan?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIzNjg1NTg0MjcwNzYyNg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р’С–С‚Р°Р»С–Р№ РЎРѕСЂРѕС‡Р°РЅ](https://www.facebook.com/vit.sorochan?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzIzNjg1NTg0MjcwNzYyNg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Аптека "Shop ви були нам здорові"
+РђРїС‚РµРєР° "Shop РІРё Р±СѓР»Рё РЅР°Рј Р·РґРѕСЂРѕРІС–"
 
-Довідкова служба "А я знаю?"
+Р”РѕРІС–РґРєРѕРІР° СЃР»СѓР¶Р±Р° "Рђ СЏ Р·РЅР°СЋ?"
 
-[Андрей Ковалев](https://www.facebook.com/profile.php?id=100001560576524&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNTQzMDU3NTkyNDQ4OTE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РђРЅРґСЂРµР№ РљРѕРІР°Р»РµРІ](https://www.facebook.com/profile.php?id=100001560576524&comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzEwNTQzMDU3NTkyNDQ4OTE%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Шлюбова агенція "Наша Галя балувана'.
+РЁР»СЋР±РѕРІР° Р°РіРµРЅС†С–СЏ "РќР°С€Р° Р“Р°Р»СЏ Р±Р°Р»СѓРІР°РЅР°'.
 
 [Iryna Rozovyk](https://www.facebook.com/iryna.rozovyk.5?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzM1NTM2MDU0Njg0ODcxMg%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Ковбасний цех «За кусок кишки сто верстов пішки»
+РљРѕРІР±Р°СЃРЅРёР№ С†РµС… В«Р—Р° РєСѓСЃРѕРє РєРёС€РєРё СЃС‚Рѕ РІРµСЂСЃС‚РѕРІ РїС–С€РєРёВ»
 
-[Михайло Падалка](https://www.facebook.com/misha.cn.ua?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3NTQyMDcyMzYwNjk1OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[РњРёС…Р°Р№Р»Рѕ РџР°РґР°Р»РєР°](https://www.facebook.com/misha.cn.ua?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1Xzg3NTQyMDcyMzYwNjk1OA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Парк атракціонів «підняло та гепнуло»
+РџР°СЂРє Р°С‚СЂР°РєС†С–РѕРЅС–РІ В«РїС–РґРЅСЏР»Рѕ С‚Р° РіРµРїРЅСѓР»РѕВ»
 
 [Natali KaraDeniz](https://www.facebook.com/natali.romanenko.9?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzI2MzYzMDE5MDAwMzM4NA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Магазин іграшок "Чім би дитя не тішилось, аби не плакало"
+РњР°РіР°Р·РёРЅ С–РіСЂР°С€РѕРє "Р§С–Рј Р±Рё РґРёС‚СЏ РЅРµ С‚С–С€РёР»РѕСЃСЊ, Р°Р±Рё РЅРµ РїР»Р°РєР°Р»Рѕ"
 
-[Юлія Кузь](https://www.facebook.com/kuz.yulichka?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY2Mjk4NjQxNTYxMTUwOA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
+[Р®Р»С–СЏ РљСѓР·СЊ](https://www.facebook.com/kuz.yulichka?comment_id=Y29tbWVudDo3MDM3OTM2NzI2MjM3MjA1XzY2Mjk4NjQxNTYxMTUwOA%3D%3D&__cft__%5b0%5d=AZXBn8YhXE3D78gTzsdWFXOI-YG0h_pqF8jl2ABOVSacTbGLYLoEHkeQCLxzL2qn_o2lxh47h1t2gE4omhI7_WpHxh1OJ-D33C15RgQHbD8sEc5CmbTF-52FMBLHvNZ8kbI&__tn__=R%5d-R)
 
-Школа ораторського мистецтва "Добазікався".
+РЁРєРѕР»Р° РѕСЂР°С‚РѕСЂСЃСЊРєРѕРіРѕ РјРёСЃС‚РµС†С‚РІР° "Р”РѕР±Р°Р·С–РєР°РІСЃСЏ".
