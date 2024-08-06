@@ -44,17 +44,21 @@ END
 
 --index fragmentation
 BEGIN
-	select  *
-	into    #STAT 
-	from    sys.dm_db_index_physical_stats(DB_ID('Data_Load'), null, null, null, null) s
-	where   avg_fragmentation_in_percent > 10;
-
-
-	select object_name(s.object_id) as object, i.name, s.* 
-	from    #STAT s
-	left join    sys.indexes i with (nolock) on i.object_id = s.object_id and i.index_id = s.index_id
-	order by 1, 2;
-
-	drop table #STAT;
+SELECT 
+    dbschemas.[name] AS [Schema], 
+    dbtables.[name] AS [Table], 
+    dbindexes.[name] AS [Index], 
+    indexstats.avg_fragmentation_in_percent,
+    indexstats.page_count
+FROM 
+    sys.dm_db_index_physical_stats(DB_ID('Data_Load'), NULL, NULL, NULL, NULL) AS indexstats
+    INNER JOIN sys.tables dbtables ON dbtables.[object_id] = indexstats.[object_id]
+    INNER JOIN sys.schemas dbschemas ON dbtables.[schema_id] = dbschemas.[schema_id]
+    INNER JOIN sys.indexes AS dbindexes ON dbindexes.[object_id] = indexstats.[object_id]
+    AND indexstats.index_id = dbindexes.index_id
+--WHERE 
+--    indexstats.avg_fragmentation_in_percent > 10  -- Пороговое значение фрагментации
+ORDER BY 
+    1, 2
 END
 
