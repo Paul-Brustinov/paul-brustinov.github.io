@@ -62,3 +62,9 @@ ORDER BY
     1, 2
 END
 
+---------------------------------------------------------------------------------------------
+-- diagnostic messages
+DECLARE @t INT, @d DATETIME;
+SET @t = DATEDIFF(ss, @d, GETUTCDATE()); SET @d = GETUTCDATE(); RAISERROR('D : %d', 0, 1, @t) WITH NOWAIT;
+
+
